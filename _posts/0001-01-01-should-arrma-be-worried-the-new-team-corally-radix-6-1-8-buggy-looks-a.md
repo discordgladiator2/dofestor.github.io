@@ -1,0 +1,15 @@
+---
+title: "Should Arrma be worried? The NEW Team Corally RADIX 6 1\/8 Buggy looks awesome!"
+image: "https:\/\/i.ytimg.com\/vi\/0zQdL1AOAj0\/hqdefault.jpg"
+vid_id: "0zQdL1AOAj0"
+categories: "Entertainment"
+tags: ["traxxas rc cars","rc4wd","rc cars"]
+date: "2021-06-07T02:38:25+03:00"
+vid_date: "2021-02-03T15:30:13Z"
+duration: "PT14M13S"
+viewcount: "31141"
+likeCount: "782"
+dislikeCount: "20"
+channel: "Tomley RC"
+---
+{% raw %}This 1/8 Scale, 6s Buggy from Corally looks epic! It's the Arrma Typhon's closest rival, will it be better? <br /><br />Support your local Hobby Shops, find your Team Corally here:<br /><a rel="nofollow" target="blank" href="https://www.cmldistribution.co.uk/model-shop-finder">https://www.cmldistribution.co.uk/model-shop-finder</a><br /><br />More info on the Radix here:<br /><a rel="nofollow" target="blank" href="https://www.cmldistribution.co.uk/product/C-00185/corally-radix-xp-6s-buggy-1-8-swb-brushless-rtr">https://www.cmldistribution.co.uk/product/C-00185/corally-radix-xp-6s-buggy-1-8-swb-brushless-rtr</a><br /><br />Voltz 6s 4800mah Lipo:<br /><a rel="nofollow" target="blank" href="https://www.cmldistribution.co.uk/product/VZ0365XT90/voltz-4800mah-hard-case-22-2v-50c-lipo-stick-pack-xt90">https://www.cmldistribution.co.uk/product/VZ0365XT90/voltz-4800mah-hard-case-22-2v-50c-lipo-stick-pack-xt90</a> <br /><br />GensAce 5000mah 50C 'Bashing' Series<br /><a rel="nofollow" target="blank" href="https://www.gensace.de/gens-ace-5000mah-11-1v-3s1p-50c-lipo-battery-pack-with-xt-90-plug-bashing-series.html">https://www.gensace.de/gens-ace-5000mah-11-1v-3s1p-50c-lipo-battery-pack-with-xt-90-plug-bashing-series.html</a><br /><br />If you enjoy my content, feel free to buy me a Coffee to show your support. (Sponsored Truck build coming soon, sponsored by YOU!)<br /><a rel="nofollow" target="blank" href="https://www.buymeacoffee.com/TomleyRC">https://www.buymeacoffee.com/TomleyRC</a><br /><br />My Music: <a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referral/4kw2l3/">https://www.epidemicsound.com/referral/4kw2l3/</a><br /><br />My Youtube Tool: <a rel="nofollow" target="blank" href="https://www.tubebuddy.com/youtube000">https://www.tubebuddy.com/youtube000</a><br /><br />Facebook:  <a rel="nofollow" target="blank" href="https://www.facebook.com/TomleysGarage">https://www.facebook.com/TomleysGarage</a><br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/tomleyrc/">https://www.instagram.com/tomleyrc/</a><br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/TomleyRCGarage">https://twitter.com/TomleyRCGarage</a><br /><br />Tomley RC © 2020 Tomley Media Ltd.  All rights reserved.  Publication, reproduction or distribution of this film by any means whatsoever - including without limitation electronic transmission via internet or e-mail, or re-uploading existing videos &amp; re-uploading such material on any website anywhere in the world — is strictly prohibited without the prior written consent of Tomley Media Ltd.{% endraw %}
