@@ -1,0 +1,15 @@
+---
+title: "Dissociative Disorders: Definitions & Types – Psychiatry | Lecturio"
+image: "https:\/\/i.ytimg.com\/vi\/G1AMmffRkKs\/hqdefault.jpg"
+vid_id: "G1AMmffRkKs"
+categories: "Education"
+tags: ["medical course","medical education","medical school lecture"]
+date: "2021-06-06T23:29:57+03:00"
+vid_date: "2017-07-26T09:43:28Z"
+duration: "PT4M5S"
+viewcount: "30994"
+likeCount: "346"
+dislikeCount: "5"
+channel: "Lecturio Medical"
+---
+{% raw %}This video “Dissociative Disorders: Definitions &amp; Types” is part of the Lecturio course “Psychiatry” ► WATCH the complete course on <a rel="nofollow" target="blank" href="http://lectur.io/dissociativedisorders">http://lectur.io/dissociativedisorders</a><br /><br />► LEARN ABOUT:<br />- Confused and disoriented woman - case study <br />- Definition of dissociation <br />- The self<br />- Types of dissociative disorders<br /><br />► THE PROF: <br />Dr. Farrell is a Harvard Medical School faculty member and board certified psychiatrist with a private practice in Boston. She has experience in patient care, teaching and in treating psychological disorders in various settings, including the Emergency Department, inpatient units and outpatient settings.<br /><br />► LECTURIO is your single-point resource for medical school:<br />Study for your classes, USMLE Step 1, USMLE Step 2, MCAT or MBBS with video lectures by world-class professors, recall &amp; USMLE-style questions and textbook articles. Create your free account now:  <a rel="nofollow" target="blank" href="http://lectur.io/dissociativedisorders">http://lectur.io/dissociativedisorders</a><br /><br />► INSTALL our free Lecturio app<br />iTunes Store: <a rel="nofollow" target="blank" href="https://app.adjust.com/z21zrf">https://app.adjust.com/z21zrf</a><br />Play Store: <a rel="nofollow" target="blank" href="https://app.adjust.com/b01fak">https://app.adjust.com/b01fak</a><br /><br />► READ TEXTBOOK ARTICLES related to this video: <br />Overview of Dissociative Disorders: Dissociative Identity Disorder, Dissociative Amnesia and Dissociative Fugue<br /><a rel="nofollow" target="blank" href="http://lectur.io/dissociativedisorderarticle">http://lectur.io/dissociativedisorderarticle</a><br /><br />► SUBSCRIBE to our YouTube channel: <a rel="nofollow" target="blank" href="http://lectur.io/subscribe">http://lectur.io/subscribe</a><br /><br />► WATCH MORE ON YOUTUBE: <a rel="nofollow" target="blank" href="http://lectur.io/playlists">http://lectur.io/playlists</a><br /><br />► LET’S CONNECT:<br />• Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/lecturio.medical.education.videos">https://www.facebook.com/lecturio.medical.education.videos</a><br />• Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/lecturio_medical_videos">https://www.instagram.com/lecturio_medical_videos</a><br />• Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/LecturioMed">https://twitter.com/LecturioMed</a>{% endraw %}
