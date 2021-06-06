@@ -1,0 +1,15 @@
+---
+title: "Said The Sky and Olivver the Kid- \"We Know Who We Are\" (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/N-bjVN1yxjA\/hqdefault.jpg"
+vid_id: "N-bjVN1yxjA"
+categories: "Music"
+tags: ["Olivver","(Official","Video)"]
+date: "2021-06-06T17:56:39+03:00"
+vid_date: "2021-05-21T16:00:11Z"
+duration: "PT4M5S"
+viewcount: "154569"
+likeCount: "3703"
+dislikeCount: "33"
+channel: "Said The Sky"
+---
+{% raw %}Said The Sky and Olivver the Kid- &quot;We Know Who We Are&quot; (Official Video)<br />Stream &quot;We know Who We Are&quot;: <a rel="nofollow" target="blank" href="https://smarturl.it/WeKnowWhoWeAre">https://smarturl.it/WeKnowWhoWeAre</a>  <br /><br />Follow Said The Sky<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/saidthesky/">https://www.instagram.com/saidthesky/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/saidthesky">https://www.facebook.com/saidthesky</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/SaidTheSky">https://twitter.com/SaidTheSky</a> <br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@saidthesky">https://www.tiktok.com/@saidthesky</a><br />Text me for updates on new music (303) 219-8367<br /><br />Follow Olivver the Kid <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/olivverthekid">https://www.instagram.com/olivverthekid</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/people/Olivver-the-Kid">https://www.facebook.com/people/Olivver-the-Kid</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/OlivverTheKid">https://twitter.com/OlivverTheKid</a> <br />TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@olivver_the_kid">https://www.tiktok.com/@olivver_the_kid</a> <br /><br />Crew<br />Director + Editor - Lillie Wojcik<br />Producer - Sara Clausen <br />Cinematographer + Color - Justin Jones <br />Executive Producer - Ash Stahl <br />Executive Producer - Lillieland<br />1st AD - Meredith Kurey <br />Production Designer - Sky Prey  <br />1st AC - Gary Long<br />Gaffer - Matt Richmond <br />Key Grip - Jason Rowlen <br />Glam - Fara Conley <br />Production Assistant - Nick De La Rosa <br />Casting by CONTRA <br />BTS Photographer - Emma Paige<br />BTS Photographer - Donslens<br /><br />Featuring <br />Mary Leggett  <br />Jesse Somera <br />Kyle Bujard <br />Tyrin turner <br />Natasha Hamilton <br />Presley Cross <br /><br />Band<br />Olivver The Kid <br />Drew Bruchs <br />Petey Martin <br /><br />Additional cast<br />Skateboarder - Alejandro Burnell  <br />Skateboarder - Caio<br />Skateboarder - Chucky Lane<br />Joel Kelly <br />Sydney Pugh <br />Blake Foster <br />Nate Lyons <br /><br />Friends<br />Will Black<br />Annika Wells<br />Mike Bedard <br />David Scott<br />Delainey Garland<br />Kayla Bierei<br />Cam Tagge<br />Jake Trevino<br />Mike Coleman<br />Adi Azran<br />Jacob Pace<br />Amy Hart <br />Mckenzie Hargens<br />Dorothy Chan<br />Jisu Kim <br />Grim Stahl<br /><br />#SaidTheSky #OlivverTheKid #WeKnowWhoWeAre{% endraw %}
