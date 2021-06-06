@@ -1,14 +1,14 @@
 # Site settings
-title: "emerald"
-description: ""
-url: "https://emerald.github.io"  # http://localhost:4000 
+title: "Dofestor"
+description: "Weirdos that hang around primary schools. How to remove acid from floor using salt. how to brush your teeth - fight tooth decay."
+url: "https://dofestor.github.io"  # http://localhost:4000 
 
 title_slog: "" # Home pge slog
 title_sep: "" # Home
 # verification
-bing: ""
-yandex: ""
-google: ""
+bing: "5A01BBD4117EF83AC92572874CE3DFC9"
+yandex: "0bf28e58f98fcaeb"
+google: "lnGCkQAWTet13cyrOnszyVP41wftPJnakZmGbyH82gs"
 # encoding timezone
 encoding: "utf-8"
 timezone: UTC
