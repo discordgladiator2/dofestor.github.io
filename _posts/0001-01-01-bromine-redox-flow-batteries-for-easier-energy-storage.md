@@ -1,0 +1,15 @@
+---
+title: "Bromine & redox-flow batteries for easier energy storage"
+image: "https:\/\/i.ytimg.com\/vi\/_-P1KUz1e4Q\/hqdefault.jpg"
+vid_id: "_-P1KUz1e4Q"
+categories: "Science-Technology"
+tags: ["bromine","BSEF","energy storage"]
+date: "2021-06-07T07:14:30+03:00"
+vid_date: "2018-10-17T10:37:01Z"
+duration: "PT2M28S"
+viewcount: "5590"
+likeCount: ""
+dislikeCount: ""
+channel: "BSEF – The International Bromine Council"
+---
+{% raw %}In this video we focus on one of today’s biggest challenges in the ongoing energy transition: effective and sustainabe capture and storage of electrical energy for future use. <br /><br />BSEF traveled to the Netherlands to chat with Wiebrand Kout, Ing. and CTO of Elestor, a Dutch high-tech company operating in the electricity storage industry. They are developing bromine-based technologies that will facilitate the storage of renewable energy on a large scale. <br /><br />VIDEO TRANSCRIPT:<br />&quot;My name is Wiebrand Kout, I am the founder of Elestor electricity storage. <br /><br />We have to decarbonize our electricity supply. Generating electric power with solar or wind can be done at amazingly low costs. However, with today’s batteries storing electricity can be 10 times more expensive than generating it. We need a lot of solar, we need a lot of wind and all of this energy has to be buffered by batteries, so this means that we are going to have to build a lot of battery capacity. <br /><br />The solid-state batteries that we use today rely on rare materials. There are simply not enough of those materials on this planet to provide a fully carbonized electricity supply. This is where bromine comes in.<br /><br />What makes a flow battery unique is that the electricity is stored not in the battery cells, but in separate tanks. All we do during charging or discharging is change what is inside these tanks, hence the name “flow battery”. <br /><br />The advantage of using bromine flow batteries is that the availability of the active material (bromine) is guaranteed. So, this also gives us price stability, leading to a very low cost for the end user. And on top of that, we know already it is fully recyclable. <br /><br />So, applications. Think for example about businesses, there are many factories that already have a lot of solar panels on the roof. Or think about a group of houses that can be energy-independent, if only they had the battery to go with the solar panels. <br /><br />Or think about larger applications, for example, buffering an off-shore wind farm. <br /><br />So, any application that is not on wheels and that needs hundreds of kilowatt hours to megawatt hours, these are the perfect applications for the bromine flow battery. <br /><br />We at Elestor are convinced that the bromine flow battery is the enabling technology for a fully decarbonized electricity supply, and this will change the world.&quot;<br /><br />Find out more about bromine and its many applications by visiting our website: www.bsef.org or read our blog page to stay up to date on bromine-related news: lets-talk-bromine.bsef.com{% endraw %}
