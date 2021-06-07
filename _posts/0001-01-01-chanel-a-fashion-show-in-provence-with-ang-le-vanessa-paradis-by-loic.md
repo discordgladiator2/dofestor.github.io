@@ -1,0 +1,15 @@
+---
+title: "CHANEL: A FASHION SHOW IN PROVENCE! With Angèle & Vanessa Paradis! by Loic Prigent"
+image: "https:\/\/i.ytimg.com\/vi\/bPHdxigZbV8\/hqdefault.jpg"
+vid_id: "bPHdxigZbV8"
+categories: "People-Blogs"
+tags: ["MARIAM DE VINZELLE","LLI BAHIA","LOLA NICON"]
+date: "2021-06-07T21:05:40+03:00"
+vid_date: "2021-06-05T09:00:14Z"
+duration: "PT37M7S"
+viewcount: "75079"
+likeCount: "2612"
+dislikeCount: "48"
+channel: "Loic Prigent"
+---
+{% raw %}SOUS-TITRES DISPONIBLES! <br /><br />We have All Access to the Chanel Cruise collection for 2021-2022! There was no audience due to the pandemic, but, miracle, we sneaked in! We zoom on the fabrics, the inspirations and references! Virginie Viard and the ateliers let us film the details of a very rich collection that is a sentimental puzzle of different energies, both poetic and musical! After the collection, Virginie Viard asked some of her favorite singers to perform in Provence and it's an intimate concert. And we get a Chanel Bag Report, hosted by Amanda Sanchez, the in-house model with the greatest Cc bag collection if you remember well from earlier on this channel! I hope you have fun watching the video, we had so much fun filming it and we felt so privileged to witness the action! <br /><br />SUBSCRIBE FOR THE FUN FASHION!<br /><a rel="nofollow" target="blank" href="https://tinyurl.com/y3fcc8ov​​​​">https://tinyurl.com/y3fcc8ov​​​​</a><br /><br />Welcome to sunny Provence for the Chanel Cruise by Virginie Viard! <br />Prenez soin de vous!<br /><br />Montage: Konstantin Maslakov <br />Produit par Natacha Morice pour DERALF (Divertissant Et Révoltant A La Fois)<br />Filmé avec Julien Da Costa <br />Contact : deralfproduction@gmail.com<br />Musique : Audionetwork!<br />Chanel concert &amp; show filmed by Walter Films<br /><br />WATCH THE FULL CHANEL CONCERT : <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=G5-oaQAKIJA">https://www.youtube.com/watch?v=G5-oaQAKIJA</a><br /><br />ENCORE PLUS DE CHANEL : <br />AMANDA SANCHEZ AT HOME<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=KY8aQ767BYU">https://www.youtube.com/watch?v=KY8aQ767BYU</a><br /><br />VIRGINIE VIARD'S FIRST CHANEL CRUISE<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=b8QhMvH1zxw">https://www.youtube.com/watch?v=b8QhMvH1zxw</a><br /><br />THE AUBAZINE COUTURE COLLECTION<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=riPkS9SVVVw">https://www.youtube.com/watch?v=riPkS9SVVVw</a><br /><br />JOURNAL D'UNE COLLECTION COUTURE CHANEL<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=_waWz5gVa4s">https://www.youtube.com/watch?v=_waWz5gVa4s</a><br /><br /><br />PLUS DE LOIC ICI : <br />INSTAGRAMMM 〉 <a rel="nofollow" target="blank" href="https://www.instagram.com/loicprigent...​">https://www.instagram.com/loicprigent...​</a><br /><br />Abonnez-vous pour tout voir de la mode et ses ramifications! Commentez! Cliquez sur la cloche de notification! <br />Bises! <br />Loic et l’équipe!<br /><br />#CHANEL​​​ #VIRGINIEVIARD​​​ #VANESSAPARADIS​{% endraw %}
