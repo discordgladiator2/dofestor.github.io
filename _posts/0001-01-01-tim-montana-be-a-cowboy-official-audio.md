@@ -1,0 +1,15 @@
+---
+title: "Tim Montana - Be A Cowboy (Official Audio)"
+image: "https:\/\/i.ytimg.com\/vi\/1gzj5KKLjYw\/hqdefault.jpg"
+vid_id: "1gzj5KKLjYw"
+categories: "Music"
+tags: ["Tim","Montana","Cowboy"]
+date: "2021-06-08T06:29:04+03:00"
+vid_date: "2020-12-28T05:00:02Z"
+duration: "PT3M22S"
+viewcount: "309056"
+likeCount: "6318"
+dislikeCount: "93"
+channel: "TimMontanaVEVO"
+---
+{% raw %}Stream: <a rel="nofollow" target="blank" href="https://timmontana.lnk.to/beacowboyID">https://timmontana.lnk.to/beacowboyID</a><br /> <br />Subscribe: <a rel="nofollow" target="blank" href="https://timmontana.lnk.to/ytsubscribe">https://timmontana.lnk.to/ytsubscribe</a><br /> <br />Connect with Tim:<br /><a rel="nofollow" target="blank" href="https://timmontana.com/">https://timmontana.com/</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/timmontana/">https://www.facebook.com/timmontana/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/TimMontana">https://twitter.com/TimMontana</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/timmontana/">https://www.instagram.com/timmontana/</a><br /> <br />LYRICS<br />ALL THE MOMMAS IN THE WORLD OUT THERE WILL SAY <br />THEY PRAY THEIR BABY’S WILL TURN OUT THE RIGHT WAY <br />STAY AWAY FROM THE HONKY TONKS, THE RODEOS AND THE BAD OL’ BRONCS<br />THEY WON’T WIND UP RIDING THEM FENCES <br />DRIVING OLD TRUCKS WITH TWO TON WINCHES <br />DESPERADAS TIL THE DAY DIE AND I GUESS THAT’S WHY <br /><br />EVERYBODY WANTS TO BE A COWBOY <br />A COWBOY A COWBOY <br />LIVE IT WILD LIKE THEY DO OUT WEST <br />BE THE BEST <br />RIDE AWAY IN THE SUNSET <br />KICK UP A LITTLE DUST AND YOUR GONE <br />JUST LIKE SOME OLD COUNTRY SONG <br />EVERY TIME IF YOU HAD THE CHOICE <br />EVERYBODY WANTS TO BE A COWBOY <br /><br />YEAH THEY TREAT YOU LIKE YOU’RE SOME KIND OF BIG ROCK STAR <br />BUY ALL YOUR DRINKS WHEN YOU WALK IN THE BAR <br />EVEN ALL THE PEOPLE OUT IN HOLLYWOOD MAKING MOVIES ABOUT ‘CHA MAKE YOU LOOK GOOD AIN’T NO FUN TILL YOU BREAK A FEW BONES <br />KNOCK OFF THE DUST PUT YOUR HAT BACK ON <br />FLYING UP HIGH BURNIN GASOLINE <br />I THINK I KNOW WHAT THEY MEAN <br /><br />EVERYBODY WANTS TO BE A COWBOY <br />A COWBOY A COWBOY <br />LIVE IT WILD LIKE THEY DO OUT WEST <br />BE THE BEST <br />RIDE AWAY IN THE SUNSET <br />KICK UP A LITTLE DUST AND YOUR GONE <br />JUST LIKE SOME OLD COUNTRY SONG <br />EVERY TIME IF YOU HAD THE CHOICE <br />EVERYBODY WANTS TO BE A COWBOY <br /><br />YEAH THEY TREAT YOU LIKE YOU’RE SOME KIND OF BIG ROCK STAR<br />AND I GUESS THAT’S WHY<br /><br />EVERYBODY WANTS TO BE A COWBOY <br />A COWBOY A COWBOY <br />LIVE IT WILD LIKE THEY DO OUT WEST <br />BE THE BEST <br />RIDE AWAY IN THE SUNSET <br />KICK UP A LITTLE DUST AND YOUR GONE <br />JUST LIKE SOME OLD COUNTRY SONG <br />EVERY TIME IF YOU HAD THE CHOICE <br />EVERYBODY WANTS TO BE A COWBOY<br /><br />#TimMontana #PBR #BeACowboy<br /><br /><a rel="nofollow" target="blank" href="http://vevo.ly/HUnwZg">http://vevo.ly/HUnwZg</a>{% endraw %}
