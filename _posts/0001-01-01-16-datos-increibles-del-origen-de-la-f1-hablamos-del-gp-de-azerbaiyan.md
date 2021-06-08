@@ -1,0 +1,15 @@
+---
+title: "16 DATOS INCREIBLES DEL ORIGEN DE LA F1 (+ Hablamos del GP de Azerbaiyan)"
+image: "https:\/\/i.ytimg.com\/vi\/J0IPTmo3DUM\/hqdefault.jpg"
+vid_id: "J0IPTmo3DUM"
+categories: "Autos-Vehicles"
+tags: ["f1","formula","one"]
+date: "2021-06-08T08:45:08+03:00"
+vid_date: "2021-06-07T21:28:19Z"
+duration: "PT14M45S"
+viewcount: "13123"
+likeCount: "2387"
+dislikeCount: "35"
+channel: "CarsLatino"
+---
+{% raw %}si tu también quieres ser miembro de este canal informate lo que tengo para ti en el siguiente enlace!!<br /> 😎✔️<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCaZgA3fjvE_ufV-M2uKMi9A/join">https://www.youtube.com/channel/UCaZgA3fjvE_ufV-M2uKMi9A/join</a><br /><br />Contacto/Negocios: carslatinochannel@gmail.com<br /><br />Siguenos en Facebook/Twitter/Instagram:<br /><a rel="nofollow" target="blank" href="https://twitter.com/CarsLatino1">https://twitter.com/CarsLatino1</a><br /><a rel="nofollow" target="blank" href="https://facebook.com/carslatinochannel/">https://facebook.com/carslatinochannel/</a><br /><a rel="nofollow" target="blank" href="https://instagram.com/carslatinooficial">https://instagram.com/carslatinooficial</a><br /><br />Patrocinios Proyecto Impreza WRX400<br />Paypal: carslatinochannel@gmail.com<br /><br />Canales que Recomiendo!:<br />Karla Tino: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCUXsq0AZLzfGNA5cKgx0Dow">https://www.youtube.com/channel/UCUXsq0AZLzfGNA5cKgx0Dow</a><br />JUP: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC0vqLhlLziuPx97mP1QRloQ">https://www.youtube.com/channel/UC0vqLhlLziuPx97mP1QRloQ</a><br />Eddie's Toy Car Garage: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCxD7wWWq-9XYb8-R-5QwI2g">https://www.youtube.com/channel/UCxD7wWWq-9XYb8-R-5QwI2g</a><br />J.C. Mods: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/seckoreano">https://www.youtube.com/user/seckoreano</a><br />Alex Becerra:<a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCdLTgefvLWUN82mjA_whW7Q">https://www.youtube.com/channel/UCdLTgefvLWUN82mjA_whW7Q</a><br /><br />Tienes un Auto interesante para hacerle una prueba de manejo?<br />contactame!!!<br />carslatinochannel@gmail.com<br /><br />The Copyright Laws of the United States recognizes a “fair use” of copyrighted content. Section 107 of the U.S. Copyright Act states: “Notwithstanding the provisions of sections 106 and 106A, the fair use of a copyrighted work, including such use by reproduction in copies or phonorecords or by any other means specified by that section, for purposes such as criticism, comment, news reporting, teaching (including multiple copies for classroom use), scholarship, or research, is not an infringement of copyright.” This video may contain certain copyrighted works but which we believe in good faith are protected by law and the fair use doctrine.<br /><br />0:01 Hablando de Azerbaiyan<br />7:10 16 Datos Increíbles del inicio de la F1{% endraw %}
