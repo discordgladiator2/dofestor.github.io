@@ -1,0 +1,15 @@
+---
+title: "2021 Portland Open | R1B9 FEATURE | Lizotte, McMahon, Keegan, Locastro | Jomez"
+image: "https:\/\/i.ytimg.com\/vi\/4k9UQiAOM0c\/hqdefault.jpg"
+vid_id: "4k9UQiAOM0c"
+categories: "Sports"
+tags: ["jomez productions","jomez disc golf","jomezpro"]
+date: "2021-06-08T11:44:29+03:00"
+vid_date: "2021-06-05T14:30:01Z"
+duration: "PT42M26S"
+viewcount: "178308"
+likeCount: "3541"
+dislikeCount: "34"
+channel: "JomezPro"
+---
+{% raw %}Thank you for watching JomezPro Disc Golf tournament coverage of the MPO feature card's first round at the 2021 Portland Open.<br /><br />Card: Simon Lizotte, Eagle McMahon, Dustin Keegan, Nikko Locastro<br />Course: Glendoveer Disc Golf Course | Portland, OR<br />BigSexyBarri Commentary: Jeremy &quot;Big Jerm&quot; Koling, Nate &quot;Sexy&quot; Sexton, &amp; Paul &quot;Uli&quot; Ulibarri<br /><br />Thanks to our partners who make our coverage possible:<br />BUSHNELL ⏩ <a rel="nofollow" target="blank" href="https://alnk.to/eZzEIw2">https://alnk.to/eZzEIw2</a> 👈 Shop the EDGE Disc Golf Rangefinder<br />GRIP6 BELTS ⏩ <a rel="nofollow" target="blank" href="https://grip6.com">https://grip6.com</a><br />UDISC ⏩ <a rel="nofollow" target="blank" href="https://udisc.com">https://udisc.com</a><br /><br />🔥 Access EXCLUSIVE content &amp; giveaways right now at <a rel="nofollow" target="blank" href="https://jomezpro.com/patreon">https://jomezpro.com/patreon</a><br /><br />📅 2021 Tournament Coverage Schedule: <a rel="nofollow" target="blank" href="https://www.jomezpro.com/schedule">https://www.jomezpro.com/schedule</a><br /><br />⛓️ SHOP official JomezPro discs, merch, music at <a rel="nofollow" target="blank" href="https://www.jomezpro.com/shop">https://www.jomezpro.com/shop</a><br /><br />📱 Check out more JomezPro:<br /><a rel="nofollow" target="blank" href="https://jomezpro.com/">https://jomezpro.com/</a><br /><a rel="nofollow" target="blank" href="https://instagram.com/jomezpro">https://instagram.com/jomezpro</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@jomezpro">https://www.tiktok.com/@jomezpro</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/jomezpro">https://twitter.com/jomezpro</a><br /><a rel="nofollow" target="blank" href="https://facebook.com/jomezpro">https://facebook.com/jomezpro</a><br /><br />🎵 Star Frame has been producing our theme music since 2016 <a rel="nofollow" target="blank" href="https://starframe.bandcamp.com">https://starframe.bandcamp.com</a><br /><br />Back 9 Chapters<br />00:00 Start<br />00:29 UDISC LEADERBOARD<br />00:53 HOLE 10<br />09:04 HOLE 11<br />12:01 HOLE 12<br />16:51 HOLE 13<br />19:47 HOLE 14<br />24:45 HOLE 15<br />28:05 HOLE 16<br />31:11 HOLE 17<br />34:13 HOLE 18<br />40:39 UDISC LEADERBOARD<br />41:06 FOUNDERS CLUB LIST<br /><br />Copyright ©2012-2021. All rights reserved. JomezPro™, FollowFlight™, SloMez™, NoMez™, BigSexy Commentary™, BigBarri Commentary™, BigSexyBarri Commentary™ are all protected trademarks of Jomez Productions, LLC. #jomezpro #discgolf Why are you still reading this? Get out and play some Disc Golf!{% endraw %}
