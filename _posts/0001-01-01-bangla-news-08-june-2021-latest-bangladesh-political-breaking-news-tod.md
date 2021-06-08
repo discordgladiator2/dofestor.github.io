@@ -1,0 +1,15 @@
+---
+title: "এইমাত্র পাওয়াঃ Bangla News 08 June 2021 Latest Bangladesh Political Breaking News Today"
+image: "https:\/\/i.ytimg.com\/vi\/OMn8Y3jHtNw\/hqdefault.jpg"
+vid_id: "OMn8Y3jHtNw"
+categories: "News-Politics"
+tags: ["Bangladesh","Voice of BD","Voice of Bangladesh"]
+date: "2021-06-08T16:00:07+03:00"
+vid_date: "2021-06-08T08:36:25Z"
+duration: "PT11M6S"
+viewcount: "11809"
+likeCount: ""
+dislikeCount: ""
+channel: "Voice of Bangladesh"
+---
+{% raw %}Here we are showing Bangladeshi News for informing people to get current news of Bangladesh. এইমাত্র পাওয়াঃ Bangla News 08 June 2021 Latest Bangladesh Political Breaking News Today<br /><br />#08_06_2021 #Voice_of_Bangladesh #Bangla_News_Today<br /><br />&quot;ভয়েস অফ বাংলাদেশ&quot; আমরা দেশের সংবিধান ও জনমতের প্রতি শ্রদ্ধাশীল। তাই ধর্ম ও রাষ্ট্রবিরোধী এবং উষ্কানীমূলক কোনো মন্তব্য না করে সুচিন্তিত ও যথোপযুক্ত মন্তব্যের জন্য দর্শকদের প্রতি অনুরোধ করা হলো। আপানদের মতামত আমাদের কাছে সাদরে গ্রহন যোগ্য। মন্তব্য সমূহ দর্শকের একান্ত ব্যক্তিগত। এর জন্য চ্যানেল কর্তীপক্ষ কোন ভাবেই দায়ী নয় ।<br /><br />আমাদের প্রচারিত ভিডিও গুলো দেশের স্বনামধন্য অনলাইন নিউজ পোর্টাল, গুগল, উইকিপিডিয়া  ও অন্যান্য অনলাইন সোর্স থেকে নেওয়া হয়, আমরা সর্বচ্চো চেষ্টা করি সঠিক সংবাদ আপানদের কাছে পৌঁছে দিতে, তাই এসব নিউজের সাথে সরাসরি &quot;ভয়েস অফ বাংলাদেশের&quot; কোন সংশ্লিষ্ঠতা নেই। তারপর ও কোন সংবাদের সত্যতা নিয়ে আপনাদের কোন প্রশ্ন থাকলে কমেন্ট সেকশনে জানাবেন। আমরা যথাসাধ্য চেষ্টা করব উত্তর দিতে।<br /><br />বিঃদ্রঃ কিছু কিছু সংবাদে আমরা প্রতীকী ছবি দেয়া হয়ে থাকে।<br /><br /><br />                            <br />                        *** ANTI-PIRACY WARNING *** <br /><br />This content is Copyright to this Channel “Voice of Bangladesh”. Any unauthorized reproduction, redistribution or re-upload is strictly prohibited of this material. Legal action will be taken against those who violate the copyright of the following material presented ! <br /><br />Fair Use Act Disclaimer<br /><br />This channel is for &quot; news reporting&quot; purposes only. We make these videos with the intention of educating others in a motivational/inspirational form. We do not own the clips and music we use in most cases. Our understanding is that it is in correlation to Fair Right Use, however given that it is open to interpretation, if any owners of the content clips would like us to remove the video, we have no problem with that and will do so as fast as possible. Please message us on YouTube or Facebook if you have any concerns.<br /><br />Fair Use Disclaimer:<br /><br />This channel may use some copyrighted materials without specific authorization of the owner but contents used here falls under the “Fair Use” as described in The Copyright Act 2000 Law No. 28 of the year 2000 of Bangladesh under Chapter 6, Section 36 and Chapter 13 Section 72. According to that law allowance is made for &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favor of fair use.<br /><br />Thank You for Staying With Us.{% endraw %}
