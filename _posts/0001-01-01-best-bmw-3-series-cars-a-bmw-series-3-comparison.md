@@ -1,0 +1,15 @@
+---
+title: "Best BMW 3 Series Cars - A BMW Series 3 Comparison"
+image: "https:\/\/i.ytimg.com\/vi\/F-WGDXdI-Io\/hqdefault.jpg"
+vid_id: "F-WGDXdI-Io"
+categories: "Autos-Vehicles"
+tags: ["bmw series 3","bmw series 3 comparison","bmw 3 series comparison by year"]
+date: "2021-06-09T01:13:35+03:00"
+vid_date: "2018-08-19T14:00:03Z"
+duration: "PT19M11S"
+viewcount: "129380"
+likeCount: "1223"
+dislikeCount: "94"
+channel: "ExoticCar PlayPlace"
+---
+{% raw %}Best BMW 3 Series Cars - A BMW Series 3 Comparison<br /><br />There are a ton of BMW 3 series cars.  This video gives you a complete run down of all the different Series 3 models that have come out over the years.  I show you a ton of these great BMW series 3 cars, give you comparisons by year, and help direct you to which BMW Series 3 is the best car to buy.<br /><br />Everything from the E30 to the latest m3 e90D, the series 3 cars have some of the best value buys out there on the market today, especially when you're looking for used vehicles.  That's because they're fun to drive and are generally reliable.<br /><br />I also talk about the e46, the e36, e92, and all of the different e90 models, the F80, and more.  It's amazing to watch the difference between the cars as the years go by.  From the 1980's with the e30s to the 90's and the e46.  Once we're in to the 2000's and we look at the e90s, we really start to see the current designs with the 3 series cars.<br /><br />Now, of course, I go through all of the 300 series options with these cars, I give you some comparisons, and by the end, you will have great knowledge around the whole BMW series 3 cars.<br /><br />Now go ahead and SMASH that SUBSCRIBE button and stay tuned for the next great video from Mark Holubetz at ExoticCar PlayPlace.<br /><br />We are always looking for supercars to drive and review, so if you would like to see your special toy on the big screen, please contact via Private Message, and we can make arrangements.  Send Note to :    exoticcarplayplace@gmail.com<br /><br />Join along and tell us in the comments if you agree or not.<br /><br />Please see more from my Youtube channel<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCB1FyeLuRpqi56bTzkIg-2w">https://www.youtube.com/channel/UCB1FyeLuRpqi56bTzkIg-2w</a><br /><br />Shop on my Clothing and Merchandise store for the latest Exotic Car Gear: <a rel="nofollow" target="blank" href="https://exoticcarplayplace.myshopify.com/">https://exoticcarplayplace.myshopify.com/</a><br /><br />TWITTER - @Exoticcarplaypl   <br />- <a rel="nofollow" target="blank" href="https://twitter.com/Exoticcarplaypl">https://twitter.com/Exoticcarplaypl</a><br /><br />FACEBOOK - <br />- <a rel="nofollow" target="blank" href="https://www.facebook.com/supercars2000">https://www.facebook.com/supercars2000</a><br /><br />INSTAGRAM - @Exoticcar_Playplace<br />- <a rel="nofollow" target="blank" href="http://www.instagram.com/exoticcar_playplace">http://www.instagram.com/exoticcar_playplace</a>{% endraw %}
