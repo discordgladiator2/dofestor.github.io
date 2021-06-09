@@ -1,0 +1,15 @@
+---
+title: "#7: GV Design Partner, Daniel Burka, on prototyping your way to massive influence"
+image: "https:\/\/i.ytimg.com\/vi\/TeE6Tx_nO94\/hqdefault.jpg"
+vid_id: "TeE6Tx_nO94"
+categories: "Science-Technology"
+tags: ["daniel burka","gv","milk"]
+date: "2021-06-09T14:24:58+03:00"
+vid_date: "2017-03-26T19:07:13Z"
+duration: "PT1H8M12S"
+viewcount: "35503"
+likeCount: "634"
+dislikeCount: "8"
+channel: "High Resolution"
+---
+{% raw %}Daniel Burka is a Design Partner at GV. In this episode he discusses how designers can elevate their position in a boardroom, the Google Design Sprint, and why he thinks the sprint is the equivalent of the scientific method for businesses.<br /><br />If you find our content helpful, please consider supporting High Resolution on Patreon <a rel="nofollow" target="blank" href="https://www.patreon.com/highresolution">https://www.patreon.com/highresolution</a> <br />---<br /><br />FOLLOW US<br />Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/highrespodcast">http://twitter.com/highrespodcast</a><br />Facebook: <a rel="nofollow" target="blank" href="http://facebook.com/highrespodcast">http://facebook.com/highrespodcast</a><br />iTunes: <a rel="nofollow" target="blank" href="http://bit.ly/highresitunes">http://bit.ly/highresitunes</a><br />Google Play: <a rel="nofollow" target="blank" href="http://bit.ly/highresgoogle">http://bit.ly/highresgoogle</a><br />Get early access to the next episode: <a rel="nofollow" target="blank" href="http://highresolution.design/early-access">http://highresolution.design/early-access</a><br /><br />---<br /><br />THANKS TO OUR PARTNERS<br />Squarespace – Squarespace is a SaaS-based content management system offering a website builder, eCommerce, and domains. We're big fans of Squarespace, they're a must-have for startups, photographers, bloggers or hobbyists looking to put up a beautifully designed digital presence!<br /><br />Get 10% off your first purchase on Squarespace.<br /><a rel="nofollow" target="blank" href="http://bit.ly/sqspacesponsorlink">http://bit.ly/sqspacesponsorlink</a><br /><br />InVision – InVision is the world's leading product design platform, powering the future of digital product design through our deep understanding of the dynamics of collaboration. Teams that build digital products are at a serious advantage when they use InVision's suite of prototyping tools. They're a great way of getting everyone on board.<br /><br />Get 3 full months on InVision FREE <br /><a rel="nofollow" target="blank" href="http://bit.ly/invisionpartner">http://bit.ly/invisionpartner</a><br /><br />Searle Video – Searle Video is a creative studio based out of Portland, Oregon. They've helped the creative community tell stories for over 10 years. They've done advertisements, behind the scenes stories, and documentaries for companies like Slack, Intel, Adobe, Google and the XOXO festival. <br /><a rel="nofollow" target="blank" href="http://bit.ly/searlesponsor">http://bit.ly/searlesponsor</a>{% endraw %}
