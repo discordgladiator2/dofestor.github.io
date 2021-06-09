@@ -1,0 +1,15 @@
+---
+title: "Holo is so shocking unboxing"
+image: "https:\/\/i.ytimg.com\/vi\/EWL5T0ErBH0\/hqdefault.jpg"
+vid_id: "EWL5T0ErBH0"
+categories: "Entertainment"
+tags: ["simply nailogical","simplynailogical","holo"]
+date: "2021-06-09T18:38:19+03:00"
+vid_date: "2021-06-07T01:30:26Z"
+duration: "PT2H14M59S"
+viewcount: "113897"
+likeCount: "6841"
+dislikeCount: "34"
+channel: "Simply Not Logical"
+---
+{% raw %}Holo there! Let's play with the new Holo Taco Electric Holos collection LIVE (beware of shock)! Some behind the scenes, prototypes, and nail painting fun <br />Paint with me and use #paintwithsimply on socials to show me your mani!<br />Shop Holo Taco Electric Holos Collection: <a rel="nofollow" target="blank" href="https://holota.co/simplystreamelecholo">https://holota.co/simplystreamelecholo</a><br /><br />0:00 - Stream starting soon<br />2:50 - Stream starts (I turned on my mic)<br />6:30 - Behind the scenes photoshoot<br />17:49 - New Holo Taco Electric Holos unboxing <br />41:25 - All the prototypes for the black linear holo<br />55:34 - Painting the nails (base coat)<br />1:02:43 - Poll: Who else is painting their nails?<br />1:17:05 - Painting the nails (mixed mani)<br />1:32:17 - Gradient sponge hack<br />1:51:06 - My holo is stuck<br />1:15:14 - Glossy Taco <br />2:00:38 - Final nail look💅<br /><br />_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _<br /><br />My other YouTube channels:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/simplynailogical">https://www.youtube.com/simplynailogical</a> (main)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/holotaco">https://www.youtube.com/holotaco</a> (nail polish)<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/simplypodlogical">https://www.youtube.com/simplypodlogical</a> (adult conversations)<br /><br />Socials:<br /><a rel="nofollow" target="blank" href="http://instagram.com/simplynailogical">http://instagram.com/simplynailogical</a><br /><a rel="nofollow" target="blank" href="https://www.snapchat.com/add/simplynailogica">https://www.snapchat.com/add/simplynailogica</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/nailogical">https://twitter.com/nailogical</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/simplynailogical">https://www.facebook.com/simplynailogical</a><br /><a rel="nofollow" target="blank" href="https://www.tiktok.com/@simplynailogical_itsme">https://www.tiktok.com/@simplynailogical_itsme</a><br /><br />_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _<br /><br />Holo Taco nail polish: <a rel="nofollow" target="blank" href="https://holota.co/simplystreamelecholo">https://holota.co/simplystreamelecholo</a><br /><br />Check out things I like on my personalized Amazon page!<br /><a rel="nofollow" target="blank" href="https://www.amazon.com/shop/simplynailogical">https://www.amazon.com/shop/simplynailogical</a><br /><br />Music: <a rel="nofollow" target="blank" href="http://share.epidemicsound.com/SIMPLY">http://share.epidemicsound.com/SIMPLY</a><br /><br />Some links above are affiliate links.{% endraw %}
