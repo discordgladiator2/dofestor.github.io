@@ -1,0 +1,15 @@
+---
+title: "The Midnight - Days of Thunder\/ Gloria"
+image: "https:\/\/i.ytimg.com\/vi\/TmQyfUpyeFk\/hqdefault.jpg"
+vid_id: "TmQyfUpyeFk"
+categories: "Music"
+tags: ["the midnight","days","of"]
+date: "2021-06-09T11:20:19+03:00"
+vid_date: "2015-08-01T17:00:01Z"
+duration: "PT10M16S"
+viewcount: "5120558"
+likeCount: "54402"
+dislikeCount: "1366"
+channel: "NewRetroWave"
+---
+{% raw %}Stay Retro and Subscribe: <a rel="nofollow" target="blank" href="http://bit.ly/1UBANYZ">http://bit.ly/1UBANYZ</a><br />Support: <a rel="nofollow" target="blank" href="http://bitly.com/1aIGam7">http://bitly.com/1aIGam7</a><br />Also Support: <a rel="nofollow" target="blank" href="http://bit.ly/1zudbOi">http://bit.ly/1zudbOi</a><br />Get Your Retro Wear Here: <a rel="nofollow" target="blank" href="http://www.akadewear.com">http://www.akadewear.com</a><br /><br />We had to. The demand was too much!! One of the BEST debuts to hit the Retrowave scene. Celebrating a year anniversary since the release, NRW decided to upload another set of our favs in this special A side/ B side Presentation.<br /><br />OUT NOW!<br /><a rel="nofollow" target="blank" href="https://themidnight.bandcamp.com">https://themidnight.bandcamp.com</a><br /><br />Side A: 00:00<br />Side B: 05:25<br /><br />Pic Sources<br />1. <a rel="nofollow" target="blank" href="http://bit.ly/1Dc96At">http://bit.ly/1Dc96At</a><br />2. <a rel="nofollow" target="blank" href="http://bit.ly/1NU64kM">http://bit.ly/1NU64kM</a><br />3. <a rel="nofollow" target="blank" href="http://bit.ly/1VO5pae">http://bit.ly/1VO5pae</a><br />4. <a rel="nofollow" target="blank" href="http://bit.ly/1gr93GR">http://bit.ly/1gr93GR</a><br /><br /><br />Support The Midnight<br /><a rel="nofollow" target="blank" href="http://.Twitter.com/TheMidnightLA">http://.Twitter.com/TheMidnightLA</a><br /><a rel="nofollow" target="blank" href="http://.Instagram.com/TheMidnightLA">http://.Instagram.com/TheMidnightLA</a><br /><a rel="nofollow" target="blank" href="http://.Soundcloud.com/TheMidnightOfficial">http://.Soundcloud.com/TheMidnightOfficial</a><br /><a rel="nofollow" target="blank" href="http://.Facebook.com/TheMidnightOfficial">http://.Facebook.com/TheMidnightOfficial</a><br /><br /><br />Connect with us: <br /><a rel="nofollow" target="blank" href="http://www.newretrowave.com/">http://www.newretrowave.com/</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/NewRetroWaveOfficial">https://www.facebook.com/NewRetroWaveOfficial</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/newretrowave">https://soundcloud.com/newretrowave</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/NewRetroWave">https://twitter.com/NewRetroWave</a><br /><a rel="nofollow" target="blank" href="http://instagram.com/newretrowave">http://instagram.com/newretrowave</a><br /><br />­__<br />- Visit <a rel="nofollow" target="blank" href="http://www.newretrowave.com/">http://www.newretrowave.com/</a> and live your retro dreams.{% endraw %}
