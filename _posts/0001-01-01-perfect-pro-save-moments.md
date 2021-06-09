@@ -1,0 +1,15 @@
+---
+title: "PERFECT PRO SAVE MOMENTS"
+image: "https:\/\/i.ytimg.com\/vi\/-p7DzWFty1g\/hqdefault.jpg"
+vid_id: "-p7DzWFty1g"
+categories: "Gaming"
+tags: ["High Elo TV","lol","lol montage"]
+date: "2021-06-09T17:40:38+03:00"
+vid_date: "2021-06-09T14:00:13Z"
+duration: "PT10M16S"
+viewcount: "840"
+likeCount: "106"
+dislikeCount: "1"
+channel: "High Elo TV"
+---
+{% raw %}✔️ If you wish to send me your play, please watch the tutorial<br />✔️ Tutorial <a rel="nofollow" target="blank" href="https://youtu.be/1VOwdawIfvE">https://youtu.be/1VOwdawIfvE</a><br />▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬<br />✉ Contact for business opportunities:<br />Rivenunstoppable@gmail.com<br />▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬<br />► Music Used (NoCopyrightSounds)<br />● Elektronomia - Sky High pt. II [NCS Release]<br /><a rel="nofollow" target="blank" href="https://youtu.be/lG6HVrrXup8">https://youtu.be/lG6HVrrXup8</a><br />● Jim Yosef - Firefly pt. II (ft. STARLYTE) [NCS Release]<br /><a rel="nofollow" target="blank" href="https://youtu.be/Q7E4Hiqe1s4">https://youtu.be/Q7E4Hiqe1s4</a><br />● The Same Persons - Versace [NCS Release]<br /><a rel="nofollow" target="blank" href="https://youtu.be/HdOCXC8ZwAw">https://youtu.be/HdOCXC8ZwAw</a><br />▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬<br />► Outro Music<br />● Far Out - Chains (feat. Alina Renae) [NCS Release]<br /><a rel="nofollow" target="blank" href="https://youtu.be/_RdMzr-xdmA">https://youtu.be/_RdMzr-xdmA</a><br />▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬<br />► Plays submitted by:<br />1) BlackCardinal22 !<br />2) Bobibass Gaming<br />3) boxbahk<br />4) Casteldants<br />5) Cloudy Sun<br />6) D B<br />7) daviricardo_eu<br />8) DemonKiddi<br />9) Domenic Surace<br />10) Ganked by Fiance<br />11) Good Quality<br />12) Jordan McGarty<br />13) Kayn<br />14) Kievx<br />15) kmhdasilva<br />16) Kniil<br />17) Lucky Rabbit<br />18) Mark Cracknell<br />19) Matija<br />20) Meige Xiao<br />21) Midnightfangs64<br />22) MiniatureWoo<br />23) Owls Just Wanna Have Fun<br />24) Pabalaboy<br />25) Poseidon4200<br />26) senorfr0gger1993<br />27) ShadowPhoenix142<br />28) Siwawit PRAMUANGKONG<br />29) Yassine B<br />30) Yoshox<br />31) yumi V<br />32) ZellieB<br />33) Zeusomatic<br />#LeagueofLegends #LoLMontage<br />▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬<br />✉ Submit Your Plays at:<br />higheloyt@gmail.com<br />▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬<br />► Copyright Notice:<br />We make these videos with the intention of educating LoL players how to increase and improve own skills for better playing in some segments of the game. These videos are made as a montage, consist of fragments from several different LoL matches. The content displayed in the video is recorded within the game, some parts used in the video were send by the players, with permission. <br />If any owners of the content clips would like us to remove the video, because of misunderstanding or any other issue, we have no problem with that, we will remove as soon as possible. Please email us if you have any concerns at:<br />- Rivenunstoppable@gmail.com<br />▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬▬<br />❤ Thanks For Watching! Leave a Like if You Enjoyed ❤{% endraw %}
