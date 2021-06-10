@@ -1,0 +1,15 @@
+---
+title: "If I had a [REDACTED] I would be hard right now! | Best of Vshojo #15!!"
+image: "https:\/\/i.ytimg.com\/vi\/JLpuPBsrL2s\/hqdefault.jpg"
+vid_id: "JLpuPBsrL2s"
+categories: "Entertainment"
+tags: ["vtuber","vshojo","silvervale"]
+date: "2021-06-10T17:30:56+03:00"
+vid_date: "2021-06-08T18:35:42Z"
+duration: "PT16M12S"
+viewcount: "52152"
+likeCount: "5152"
+dislikeCount: "8"
+channel: "VShojo Highlights"
+---
+{% raw %}The girls just met Vampire Lady dimitrescu a week or two ago and she has them all acting a bit strange... Even more than usual, could be the possession by male ghost, the brain damage from bonking Nyanners and Snuffy's heads together... or maybe it's just the start of the summer heat?<br /><br /><br /><br />➜ VShojo Talent (YouTube)<br />[Nyatasha Nyanners] <a rel="nofollow" target="blank" href="https://www.youtube.com/Nyanners">https://www.youtube.com/Nyanners</a><br />[Projekt Melody] <a rel="nofollow" target="blank" href="https://www.youtube.com/c/ProjektMelodyOfficial">https://www.youtube.com/c/ProjektMelodyOfficial</a><br />[Zentreya] <a rel="nofollow" target="blank" href="https://www.youtube.com/Zentreya">https://www.youtube.com/Zentreya</a><br />[Silvervale] <a rel="nofollow" target="blank" href="https://www.youtube.com/Silvervale">https://www.youtube.com/Silvervale</a><br />[Ironmouse] <a rel="nofollow" target="blank" href="https://www.youtube.com/IronMouseParty">https://www.youtube.com/IronMouseParty</a><br />[Froot] <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCtNeQ8cUwvAAhBbVbwfGWpg">https://www.youtube.com/channel/UCtNeQ8cUwvAAhBbVbwfGWpg</a><br />[Hime Hajime] <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCRfz2yOn8C7Jg5zq4Xi67-Q">https://www.youtube.com/channel/UCRfz2yOn8C7Jg5zq4Xi67-Q</a><br />[Veibae] <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCsBFeCb82qOXyUP19nmD9xw">https://www.youtube.com/channel/UCsBFeCb82qOXyUP19nmD9xw</a><br /><br />➜ VShojo Talent (Twitch)<br />[Nyatasha Nyanners] <a rel="nofollow" target="blank" href="https://www.twitch.tv/nyanners">https://www.twitch.tv/nyanners</a><br />[Projekt Melody] <a rel="nofollow" target="blank" href="https://www.twitch.tv/projektmelody">https://www.twitch.tv/projektmelody</a><br />[Zentreya] <a rel="nofollow" target="blank" href="https://www.twitch.tv/zentreya">https://www.twitch.tv/zentreya</a><br />[Silvervale] <a rel="nofollow" target="blank" href="https://www.twitch.tv/silvervale">https://www.twitch.tv/silvervale</a><br />[Ironmouse] <a rel="nofollow" target="blank" href="https://www.twitch.tv/ironmouse">https://www.twitch.tv/ironmouse</a><br />[Froot] <a rel="nofollow" target="blank" href="https://www.twitch.tv/apricot">https://www.twitch.tv/apricot</a><br />[Hime Hajime] <a rel="nofollow" target="blank" href="https://www.twitch.tv/hajime">https://www.twitch.tv/hajime</a><br />[Veibae] <a rel="nofollow" target="blank" href="https://www.twitch.tv/veibae">https://www.twitch.tv/veibae</a>{% endraw %}
