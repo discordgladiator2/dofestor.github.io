@@ -1,0 +1,15 @@
+---
+title: "Why Resist Arrest? | Renegade Cut"
+image: "https:\/\/i.ytimg.com\/vi\/Vqg7EPFsiIY\/hqdefault.jpg"
+vid_id: "Vqg7EPFsiIY"
+categories: "News-Politics"
+tags: ["renegade cut","police","black lives matter"]
+date: "2021-06-11T21:31:02+03:00"
+vid_date: "2021-06-11T15:52:12Z"
+duration: "PT20M42S"
+viewcount: "12670"
+likeCount: "1783"
+dislikeCount: "32"
+channel: "Renegade Cut"
+---
+{% raw %}Why do suspects sometimes resist arrest? Support Renegade Cut through Patreon: <a rel="nofollow" target="blank" href="http://www.patreon.com/renegadecut">http://www.patreon.com/renegadecut</a><br /><br />#georgefloyd #blacklivesmatter<br /><br />BIBLIOGRAPHY AND FURTHER READING:<br /><a rel="nofollow" target="blank" href="https://level.medium.com/why-black-people-resist-arrest-c43d99e0f961">https://level.medium.com/why-black-people-resist-arrest-c43d99e0f961</a><br /><a rel="nofollow" target="blank" href="https://www.nbcsandiego.com/news/local/african-americans-arrested-for-resisting-arrest-at-a-larger-rate-in-san-diego/2260289/">https://www.nbcsandiego.com/news/local/african-americans-arrested-for-resisting-arrest-at-a-larger-rate-in-san-diego/2260289/</a><br /><a rel="nofollow" target="blank" href="https://bostonreview.net/race-law-justice/lisa-cacho-jodi-melamed-how-police-abuse-charge-resisting-arrest">https://bostonreview.net/race-law-justice/lisa-cacho-jodi-melamed-how-police-abuse-charge-resisting-arrest</a><br /><a rel="nofollow" target="blank" href="https://www.washingtonpost.com/opinions/2019/06/04/another-excuse-police-bias-bites-dust/">https://www.washingtonpost.com/opinions/2019/06/04/another-excuse-police-bias-bites-dust/</a><br /><a rel="nofollow" target="blank" href="https://www.wunc.org/law/2019-01-30/why-are-more-african-americans-charged-with-resisting-arrest-in-asheville">https://www.wunc.org/law/2019-01-30/why-are-more-african-americans-charged-with-resisting-arrest-in-asheville</a><br /><a rel="nofollow" target="blank" href="https://www.washingtonpost.com/news/the-watch/wp/2016/07/14/why-its-impossible-to-calculate-the-percentage-of-police-shootings-that-are-legitimate/">https://www.washingtonpost.com/news/the-watch/wp/2016/07/14/why-its-impossible-to-calculate-the-percentage-of-police-shootings-that-are-legitimate/</a><br /><a rel="nofollow" target="blank" href="https://www.amnesty.org/en/latest/campaigns/2015/04/7-reasons-why-ive-got-nothing-to-hide-is-the-wrong-response-to-mass-surveillance/">https://www.amnesty.org/en/latest/campaigns/2015/04/7-reasons-why-ive-got-nothing-to-hide-is-the-wrong-response-to-mass-surveillance/</a><br /><a rel="nofollow" target="blank" href="https://www.aclu.org/blog/national-security/secrecy/you-may-have-nothing-hide-you-still-have-something-fear">https://www.aclu.org/blog/national-security/secrecy/you-may-have-nothing-hide-you-still-have-something-fear</a><br /><a rel="nofollow" target="blank" href="https://www.ishn.com/articles/112748-top-25-most-dangerous-jobs-in-the-united-states">https://www.ishn.com/articles/112748-top-25-most-dangerous-jobs-in-the-united-states</a>{% endraw %}
