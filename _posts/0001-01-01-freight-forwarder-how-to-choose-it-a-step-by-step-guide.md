@@ -1,0 +1,15 @@
+---
+title: "FREIGHT FORWARDER HOW TO CHOOSE IT - A STEP-BY-STEP GUIDE"
+image: "https:\/\/i.ytimg.com\/vi\/4tsZbWg-_hs\/hqdefault.jpg"
+vid_id: "4tsZbWg-_hs"
+categories: "People-Blogs"
+tags: ["freight forwarder","fncgroup","freightnetwork"]
+date: "2021-06-12T18:43:11+03:00"
+vid_date: "2021-06-11T16:10:39Z"
+duration: "PT3M50S"
+viewcount: "6"
+likeCount: "1"
+dislikeCount: "0"
+channel: "Freight Network Corporation (FNC Group)"
+---
+{% raw %}FREIGHT FORWARDER HOW TO CHOOSE IT - A STEP-BY-STEP GUIDE<br />A freight forwarder is a mediator in the transportation industry. A freight forwarder is also called a freight broker, Shipping agent, forwarding agent, Customs broker agent, Air cargo agent, International Movers or Non-vessel operating common carrier. <br /><br />WHAT DOES A FREIGHT FORWARDERS DO?<br />Freight forwarder's work in a range of areas and responsibilities from shipping documentation, customs clearance, location transportation, Warehousing, Packaging, Freight Negotiation with Airline &amp; Shipping companies, etc. <br /><br />Shipping Documentation <br /> it's important to know the required documents when you transport the goods or consignment to a foreign land. commercial invoice, packing list, certificate of origin, shippers letter of declaration, and bill of lading or airway bill are the important documents to be prepared along with the shipment.<br /><br /> Local Transportation <br /> A freight forwarder must have the capability to transport the goods locally. Freight forwarder assists to pick the cargo from your warehouse to forwarder warehouse or to customs bonded location to complete the customs formalities and prepare the goods to ship.<br /><br />Warehousing <br />Proper warehousing is important for every forwarder. Normally most of the freight forwarder having own warehousing facilities or have a tie-up with other large warehousing companies. there is a separate warehouse for perishable cargo, food products and HAZ Cargo (DG Cargo). IATA (international air transport Association) has specified the requirement for the cargo warehousing for freight forwarders.<br /><br />Packaging and Labelling<br /> The forwarder assists the customer on how to properly do package the products for exports. It is very important to do the proper labeling and packing especially for hazardous cargo and special care cargoes. <br /><br />Freight Negotiation <br />Freight negotiation is one of the prime responsibilities of a forwarder. due to high volume business, freight forwarders enjoy best-negotiated rates from carriers and airlines. Freight forwarders assist their customers to get competitive rates for the shipments.<br /><br />When a company or an individual want to transport the goods whether it is a personal or commercial cargo the forwarder who helps to complete the documentation, insurance, packing, warehousing, local transportation, booking the cargo with airline or shipping companies, prepare the customs declaration and follow up the consignment till delivery.<br /><br />The video is produced by FNC GROP Pte Ltd <br /><br />Visit us www.fnc-group.com{% endraw %}
