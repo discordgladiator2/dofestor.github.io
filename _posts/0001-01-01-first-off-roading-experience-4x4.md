@@ -1,0 +1,15 @@
+---
+title: "First Off-roading Experience | 4X4"
+image: "https:\/\/i.ytimg.com\/vi\/voufRNMbK-g\/hqdefault.jpg"
+vid_id: "voufRNMbK-g"
+categories: "Autos-Vehicles"
+tags: ["offroading","off-roading","4x4"]
+date: "2021-06-12T17:10:51+03:00"
+vid_date: "2021-06-10T02:04:41Z"
+duration: "PT7M11S"
+viewcount: "118"
+likeCount: "7"
+dislikeCount: "0"
+channel: "Nerd Media"
+---
+{% raw %}First time going off-roading in BC's beautiful back country! I thought the drifter boys were nuts, 4x4 is a whole other barrel. What a way to get back on the video game eh?<br /><br />Happy Birthday Zach!<br /><br />Like, Share, SUBSCRIBE &amp; hit that bell button to received notifications of new videos!<br /><br /><br /><br />HELP ME MAKE BETTER VIDEOS!  - <a rel="nofollow" target="blank" href="https://goo.gl/XYggiB">https://goo.gl/XYggiB</a><br /><br /><br /><br />GEAR I ACTUALLY USE!<br /><br /><br /><br />My &quot;Do It All&quot; Backpack - <a rel="nofollow" target="blank" href="https://amzn.to/2M6VBHU">https://amzn.to/2M6VBHU</a><br /><br />My Main Camera - <a rel="nofollow" target="blank" href="https://amzn.to/2te9xch">https://amzn.to/2te9xch</a><br /><br />My Wide &quot;Gimbal&quot; Lens - <a rel="nofollow" target="blank" href="https://amzn.to/2MC4muR">https://amzn.to/2MC4muR</a><br /><br />My Everyday &quot;Travel&quot; Lens - <a rel="nofollow" target="blank" href="https://amzn.to/2yuwMDS">https://amzn.to/2yuwMDS</a><br /><br />Best Manual Gimbal Ever - <a rel="nofollow" target="blank" href="https://amzn.to/2MEIzm5">https://amzn.to/2MEIzm5</a><br /><br />Best Electronic Gimbal Ever - <a rel="nofollow" target="blank" href="https://amzn.to/2JWPfhJ">https://amzn.to/2JWPfhJ</a><br /><br />The Mic I Use - <a rel="nofollow" target="blank" href="https://amzn.to/2K1cUJP">https://amzn.to/2K1cUJP</a><br /><br />My Drone - <a rel="nofollow" target="blank" href="https://amzn.to/2I6JFnh">https://amzn.to/2I6JFnh</a><br /><br />The BEST Tripod - <a rel="nofollow" target="blank" href="https://amzn.to/2tv750v">https://amzn.to/2tv750v</a><br /><br />GoPro HERO 5 - <a rel="nofollow" target="blank" href="https://amzn.to/2I7qlq9">https://amzn.to/2I7qlq9</a><br /><br />Polarize EVERYTHING - <a rel="nofollow" target="blank" href="https://amzn.to/2JTpvms">https://amzn.to/2JTpvms</a><br /><br />Shoot Sony? Get One Of These - <a rel="nofollow" target="blank" href="https://amzn.to/2MHauSz">https://amzn.to/2MHauSz</a><br /><br /><br /><br />FOLLOW US!<br /><br /><br /><br />Facebook --- <a rel="nofollow" target="blank" href="https://www.facebook.com/wearenerdmedia">https://www.facebook.com/wearenerdmedia</a><br /><br />Instagram --- <a rel="nofollow" target="blank" href="https://instagram.com/nerd.media">https://instagram.com/nerd.media</a><br /><br />Youtube --- <a rel="nofollow" target="blank" href="https://www.youtube.com/nerdmedia">https://www.youtube.com/nerdmedia</a><br /><br />Website --- <a rel="nofollow" target="blank" href="https://www.nerd-media.com">https://www.nerd-media.com</a><br /><br />Twitter --- <a rel="nofollow" target="blank" href="https://twitter.com/mot0nerd">https://twitter.com/mot0nerd</a>{% endraw %}
