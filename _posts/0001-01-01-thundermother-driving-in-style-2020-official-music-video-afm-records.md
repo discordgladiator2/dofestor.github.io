@@ -1,0 +1,15 @@
+---
+title: "THUNDERMOTHER - Driving In Style (2020) \/\/ Official Music Video \/\/ AFM Records"
+image: "https:\/\/i.ytimg.com\/vi\/gyL8pHR2UPk\/hqdefault.jpg"
+vid_id: "gyL8pHR2UPk"
+categories: "Music"
+tags: ["afmrecords","AFM","Records"]
+date: "2021-06-12T05:36:33+03:00"
+vid_date: "2020-04-17T10:51:10Z"
+duration: "PT3M47S"
+viewcount: "926233"
+likeCount: "10830"
+dislikeCount: "290"
+channel: "AFM Records"
+---
+{% raw %}Taken from the album &quot;Heat Wave&quot; out 31.07.2020<br />Order &amp; Stream: <a rel="nofollow" target="blank" href="https://fanlink.to/Thundermother_HeatWave">https://fanlink.to/Thundermother_HeatWave</a><br />Tickets &amp; Merchandise: <a rel="nofollow" target="blank" href="https://www.thundermother.shop">https://www.thundermother.shop</a><br /><br />THUNDERMOTHER - Driving In Style (2020) // Official Music Video // AFM Records<br /><br />Thundermother don't just play Rock'n'Roll. Thundermother are Rock'n'Roll!<br />&quot;Heat Wave&quot;, the title of the fourth Thundermother album is the musical expression of the lifestyle of the band. The sound on the new album is even groovier &amp; fatter and presents 13 tracks with an absolute catchy tune. &quot;Heat Wave&quot; reveals the full potential of the four exceptional musicians and appeals to fans of rock 'n' roll, blues, punk and heavy metal alike.<br /><br />Recorded, Mixed &amp; Mastered: Søren Andersen - Medley Studio Copenhagen 2020<br />Label: AFM Records<br />Director: Jasmin Taiebi<br />Editor: Sven Voß<br />Camera Operators: Nicolai Brunn (Jungbrunn Productions), Tobias Grabow, Vincent, Lars Gottschalk<br />Make-Up Artist: Anna Haake<br />Pictures: Franz Schepers<br />Backline: Backline &amp; More GmbH<br />Bullriding: Betz Event Marketing<br />Management: Celsius Management (Eric Burton &amp; Michael Thiesen)<br />Big thanks to Arne Eggert + Team (Angeliter Open-Air), Nori Storm + Team (Black Pearl Tattoo Flensburg), Ida Edlund (Unacceptedrebels), The amazing German Thundermother Fanclub, Friends and Family<br /><br />Follow us also on these channels:<br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/afm.records/">https://www.instagram.com/afm.records/</a><br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/afmrecords">http://www.facebook.com/afmrecords</a> <br />AFM Website: <a rel="nofollow" target="blank" href="http://www.afm-records.de">http://www.afm-records.de</a> <br />Spotify: <a rel="nofollow" target="blank" href="http://spoti.fi/1GiQDjJ">http://spoti.fi/1GiQDjJ</a> <br />AFM Webshop: <a rel="nofollow" target="blank" href="http://www.shop.afm-records.de">http://www.shop.afm-records.de</a> <br /><br />Follow Thundermother:<br /><a rel="nofollow" target="blank" href="https://www.thundermother.com">https://www.thundermother.com</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/thundermother/">https://www.instagram.com/thundermother/</a><br /><a rel="nofollow" target="blank" href="https://www.facebook.com/thundermother/">https://www.facebook.com/thundermother/</a>{% endraw %}
