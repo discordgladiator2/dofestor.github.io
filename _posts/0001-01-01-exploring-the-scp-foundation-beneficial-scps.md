@@ -1,0 +1,15 @@
+---
+title: "Exploring the SCP Foundation: Beneficial SCPs"
+image: "https:\/\/i.ytimg.com\/vi\/I9dKoNFZJdo\/hqdefault.jpg"
+vid_id: "I9dKoNFZJdo"
+categories: "Education"
+tags: ["scp foundation","secure contain protect","scp creatures"]
+date: "2021-06-12T22:46:39+03:00"
+vid_date: "2019-01-21T08:00:02Z"
+duration: "PT16M47S"
+viewcount: "1906021"
+likeCount: "62510"
+dislikeCount: "566"
+channel: "The Exploring Series"
+---
+{% raw %}<a rel="nofollow" target="blank" href="http://www.scp-wiki.net/">http://www.scp-wiki.net/</a><br /><br />Support the Patreon to see Exploring videos early and vote on new ones!: <a rel="nofollow" target="blank" href="http://bit.ly/1U9QkPh">http://bit.ly/1U9QkPh</a><br />Join the Discord!: <a rel="nofollow" target="blank" href="https://discord.gg/eBHHHe5">https://discord.gg/eBHHHe5</a><br />Support the Series with official Merch!: <a rel="nofollow" target="blank" href="https://t.co/aH0HApXp7v">https://t.co/aH0HApXp7v</a><br />Follow me on Twitter for updates!: <a rel="nofollow" target="blank" href="https://twitter.com/TES_Mangg">https://twitter.com/TES_Mangg</a><br />Exploring SCP Foundation Playlist: <a rel="nofollow" target="blank" href="https://bit.ly/2whu8NA">https://bit.ly/2whu8NA</a><br />Exploring Celtic Mythology Playlist: <a rel="nofollow" target="blank" href="https://bit.ly/2rTuHLm">https://bit.ly/2rTuHLm</a><br />Exploring Norse Mythology Playlist: <a rel="nofollow" target="blank" href="http://bit.ly/2EAHTda">http://bit.ly/2EAHTda</a><br />Exploring Elder Scrolls Playlist: <a rel="nofollow" target="blank" href="http://bit.ly/2fgqQoY">http://bit.ly/2fgqQoY</a><br />Exploring Star Wars Playlist: <a rel="nofollow" target="blank" href="http://bit.ly/2lNtlN0">http://bit.ly/2lNtlN0</a><br />Exploring Middle-Earth Playlist: <a rel="nofollow" target="blank" href="http://bit.ly/2cGNcty">http://bit.ly/2cGNcty</a><br />Exploring the Cthulhu Mythos Playlist: <a rel="nofollow" target="blank" href="http://bit.ly/25OI9jY">http://bit.ly/25OI9jY</a><br />My Gaming Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/ManggsLPs">https://www.youtube.com/user/ManggsLPs</a><br /><br />Artists Include:<br />Rodrigo Campos: <a rel="nofollow" target="blank" href="https://www.artstation.com/toonrodchile">https://www.artstation.com/toonrodchile</a><br />Dan Temirov: <a rel="nofollow" target="blank" href="https://www.artstation.com/dante">https://www.artstation.com/dante</a><br />Zhenya Dolgova: <a rel="nofollow" target="blank" href="https://dolgova.artstation.com/">https://dolgova.artstation.com/</a><br />SleeplessSmiles: <a rel="nofollow" target="blank" href="https://www.deviantart.com/sleeplesssmiles">https://www.deviantart.com/sleeplesssmiles</a><br />Gaminghedgehog: <a rel="nofollow" target="blank" href="https://www.deviantart.com/gaminghedgehog">https://www.deviantart.com/gaminghedgehog</a><br /><br />Music:<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=8wLwxmjrZj8">https://www.youtube.com/watch?v=8wLwxmjrZj8</a>{% endraw %}
