@@ -1,0 +1,15 @@
+---
+title: "ber- Worrying (the demo) [Lyric Video]"
+image: "https:\/\/i.ytimg.com\/vi\/V7NPZtV47P8\/hqdefault.jpg"
+vid_id: "V7NPZtV47P8"
+categories: "Music"
+tags: ["original music","demos","worrying"]
+date: "2021-06-13T17:25:39+03:00"
+vid_date: "2021-04-07T05:00:15Z"
+duration: "PT3M25S"
+viewcount: "28444"
+likeCount: "1235"
+dislikeCount: "26"
+channel: "ber"
+---
+{% raw %}Homemade lyric video!!!<br /><br />Stream 'Worrying (Demo)' and 'Bad For Me' here: <a rel="nofollow" target="blank" href="https://ffm.to/badformeYT">https://ffm.to/badformeYT</a><br /><br />instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/heythereitsber/">https://www.instagram.com/heythereitsber/</a><br />twitter: <a rel="nofollow" target="blank" href="https://twitter.com/heythereitsber">https://twitter.com/heythereitsber</a><br />tiktok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@heythereitsber?">https://www.tiktok.com/@heythereitsber?</a><br /><br />Written by Berit Dybing and Dan McDougall<br />Demo Prod by Dan McDougall<br /><br />Lyrics: <br /><br />I've been crying on my own shoulder<br />been drinking myself sober<br />trying to delete some time<br />cause I keep thinking about what I said last night<br />if what I said didn't come out right<br />story of my life<br /><br />so my thoughts are gonna be the death of me <br />filling up my stupid brain with jealousy<br />what if all my friends wanna get rid of me? <br />turn it down, switch it off, cause I'm so sick of listening<br /><br />WHY the HELL do I worry about worrying?<br />WHY the HELL am I stressing over everything?<br />as if it's gonna help?<br />It makes me miserable when I'm not in control<br />why do I care so much, why do I care at all?<br />oh I yeah I know, it doesn't help a single thing<br /><br />I know it won't change a thing, worrying 'bout worrying<br /><br />I've been tryna break myself open<br />to reset all of my emotions<br />kinda scared of what I'll find<br />and I keep apologising for the way I feel<br />but THE WAY I FEEL SHOULDN'T BE A BIG DEAL<br />oh just give it a rest cause I get more depressed when you say that I'll be fine<br /><br />WHY the HELL do I worry about worrying?<br />WHY the HELL am I stressing over everything?<br />as if it's gonna help?<br />It makes me miserable when I'm not in control<br />why do I care so much, why do I care at all?<br />oh I yeah I know, it doesn't help a single thing<br /><br />so my thoughts are gonna be the death of me <br />filling up my stupid brain with jealousy<br />what if all my friends wanna get rid of me? <br />turn it down, switch it off, cause I'm so sick of listening<br /><br />WHY the HELL do I worry about worrying?<br />WHY the HELL am I stressing over everything?<br />as if it's gonna help?<br />It makes me miserable when I'm not in control<br />why do I care so much, why do I care at all?<br />oh I yeah I know, it doesn't help a single thing<br /><br />I know it won't change a thing, worrying 'bout worrying<br />I know it won't change a thing, <br />turn it down switch it off cause I'm so sick of listening{% endraw %}
