@@ -1,0 +1,15 @@
+---
+title: "Velvet Revolver - She Builds Quick Machines (Main Version)"
+image: "https:\/\/i.ytimg.com\/vi\/4Hqe3jMHhvA\/hqdefault.jpg"
+vid_id: "4Hqe3jMHhvA"
+categories: "Music"
+tags: ["slither","slash","she builds quick machines official"]
+date: "2021-06-13T23:44:46+03:00"
+vid_date: "2009-10-03T04:37:45Z"
+duration: "PT4M6S"
+viewcount: "10582351"
+likeCount: "38761"
+dislikeCount: "1171"
+channel: "velvetrevolverVEVO"
+---
+{% raw %}Velvet Revolver's official music video for 'She Builds Quick Machines'. Click to listen to Velvet Revolver on Spotify: <a rel="nofollow" target="blank" href="http://smarturl.it/VelvetRSpot?IQid=SBQM">http://smarturl.it/VelvetRSpot?IQid=SBQM</a><br /><br />As featured on Libertad. Click to buy the track or album via iTunes: <a rel="nofollow" target="blank" href="http://smarturl.it/VelvetRLibiTunes?IQid=SBQM">http://smarturl.it/VelvetRLibiTunes?IQid=SBQM</a><br />Google Play: <a rel="nofollow" target="blank" href="http://smarturl.it/VelvetRSBMQplay?IQid=SBQM">http://smarturl.it/VelvetRSBMQplay?IQid=SBQM</a><br />Amazon: <a rel="nofollow" target="blank" href="http://smarturl.it/VelvetRLibAmz?IQid=SBQM">http://smarturl.it/VelvetRLibAmz?IQid=SBQM</a><br /><br />More from Velvet Revolver<br />Slither: <a rel="nofollow" target="blank" href="https://youtu.be/BKz2U4fvA4U">https://youtu.be/BKz2U4fvA4U</a><br />Fall To Pieces: <a rel="nofollow" target="blank" href="https://youtu.be/9JhsUFuqbCM">https://youtu.be/9JhsUFuqbCM</a><br />She Builds Machines Quickly: <a rel="nofollow" target="blank" href="https://youtu.be/4Hqe3jMHhvA">https://youtu.be/4Hqe3jMHhvA</a><br /><br />More great 00s videos here: <a rel="nofollow" target="blank" href="http://smarturl.it/Alternative00?IQid=SBQM">http://smarturl.it/Alternative00?IQid=SBQM</a><br /><br />Follow Velvet Revolver<br />Website: www.velvetrevolver.com<br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/vrarmy">https://twitter.com/vrarmy</a><br /><br />Subscribe to Velvet Revolver on YouTube: <a rel="nofollow" target="blank" href="http://smarturl.it/VelvetRSub?IQid=SBQM">http://smarturl.it/VelvetRSub?IQid=SBQM</a><br /><br />---------<br /><br />Lyrics:<br /><br />Hold fast little love<br />Burn it strong, let it roam<br />Ice cold desert snow<br />She build a quick dream<br />Sister keep her motor clean<br />Sunday visits and a wet machine<br />She's always quick to fight<br />We'll break her through the night<br /><br />I can feel it when you pull straight down<br />I can feel it when they stood their ground<br />Roll over right<br />Keep it through the night<br />Right, Right<br />Keep it through the night<br />Right in my sight<br />Keep it through the night<br />I'll smash right through your spotlight<br /><br />She ran away to Texas<br />To keep away the excess<br />Old ex in Vegas, dope, back Texas<br />She burn through inheritance<br />Danced across America<br />At the all night sex show so far from home<br /><br />What you give is what you take.<br />What you bleed is what you break.<br />I'd bleed for you.<br />I'd steal for you.<br />I'd take.{% endraw %}
