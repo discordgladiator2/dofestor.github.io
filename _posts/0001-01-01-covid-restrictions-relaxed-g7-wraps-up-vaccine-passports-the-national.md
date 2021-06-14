@@ -1,0 +1,15 @@
+---
+title: "COVID restrictions relaxed, G7 wraps up, Vaccine passports | The National for June 13, 2021"
+image: "https:\/\/i.ytimg.com\/vi\/uBlgtBRyn3o\/hqdefault.jpg"
+vid_id: "uBlgtBRyn3o"
+categories: "News-Politics"
+tags: ["CBC News The National","CBC News","The National"]
+date: "2021-06-14T17:24:17+03:00"
+vid_date: "2021-06-14T05:33:47Z"
+duration: "PT45M29S"
+viewcount: "15992"
+likeCount: "135"
+dislikeCount: "80"
+channel: "CBC News: The National"
+---
+{% raw %}Parts of Canada revel in loosened COVID-19 restrictions as provinces push to get the last few residents to roll up their sleeves. Trudeau and G7 leaders make big promises on global vaccine sharing and climate change. Plus, the debate over vaccine passports. <br /><br />00:00 The National for June 13, 2021<br />01:15 Push to up vaccinations as restrictions relax<br />04:14 Saskatchewan RCMP officer killed, 2 in custody<br />06:45 G7 leaders promise global COVID-19 vaccine help<br />07:25 G7 leaders pledge united front on China<br />09:42 Biden uses G7 to rebuild U.S. relationships<br />11:57 Military leaders golfed with Vance amid investigation<br />12:48 Vigils for London, Ont. family killed in attack <br />13:45 MPs promise summit on how to fight Islamophobia<br />16:05 Accused in London, Ont. attack due in court<br />16:15 Quebec to support search of residential school grounds<br />16:55 Searching for unmarked graves at residential schools<br />20:08 12 killed in an explosion in central China<br />20:31 Netanyahu out as Israeli PM, coalition takes over<br />23:09 Denmark soccer player collapses during match<br />23:35 Actor Ned Beatty dies at age 83 <br />23:52 Go Public | The problems with hiring a paralegal<br />26:44 Delta pilot's note found 435 days later<br />27:27 The debate about COVID-19 vaccine passports<br />36:56 Vancouver's Stanley Cup riots, 10 years later<br />43:13 The Moment <br /><br />#CBCTheNational<br />#CBCNews <br />#News<br /><br />Subscribe to The National: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/user/CBCTheNational?sub_confirmation=1">https://www.youtube.com/user/CBCTheNational?sub_confirmation=1</a><br /><br />Connect with The National online:<br />Facebook | <a rel="nofollow" target="blank" href="https://www.facebook.com/thenational">https://www.facebook.com/thenational</a><br />Twitter | <a rel="nofollow" target="blank" href="https://twitter.com/CBCTheNational">https://twitter.com/CBCTheNational</a><br />Instagram | <a rel="nofollow" target="blank" href="https://www.instagram.com/cbcthenational">https://www.instagram.com/cbcthenational</a><br /><br />More from CBC News | <a rel="nofollow" target="blank" href="https://www.cbc.ca/news">https://www.cbc.ca/news</a><br /><br />The National is CBC's flagship nightly news program, featuring the day's top stories with in-depth and original journalism, with hosts Adrienne Arsenault and Andrew Chang in Toronto, Ian Hanomansing in Vancouver and the CBC's chief political correspondent, Rosemary Barton in Ottawa.{% endraw %}
