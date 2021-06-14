@@ -1,0 +1,15 @@
+---
+title: "Cervical dystonia.wmv"
+image: "https:\/\/i.ytimg.com\/vi\/1xu3yJY5E8g\/hqdefault.jpg"
+vid_id: "1xu3yJY5E8g"
+categories: "Science-Technology"
+tags: ["Cervical dystonia","spasmodic torticollis","Botox injection"]
+date: "2021-06-14T11:58:03+03:00"
+vid_date: "2011-12-20T12:15:06Z"
+duration: "PT2M41S"
+viewcount: "79937"
+likeCount: "171"
+dislikeCount: "8"
+channel: "Prabu Raman"
+---
+{% raw %}Can &quot;Cervical Dystonia&quot; be helped by Advanced Neuromuscular dental therapy?<br /><br /><br /><br />For more information <a rel="nofollow" target="blank" href="http://www.MidwestHeadaches.com">http://www.MidwestHeadaches.com</a><br /><br /><br /><br />Cervical dystonia is a painful condition in which the neck muscles contract involuntarily, causing the head to twist or turn to one side. It can also cause the head to uncontrollably tilt forward or backward. Another name for this condition is &quot;spasmodic torticollis&quot;.<br /><br /><br /><br />Medical specialists do not know what causes Cervical dystonia.  They believe that there is no known cure for Cervical dystonia.  Botulinum toxin used for cosmetic wrinkle relaxing is injected into the neck muscles to paralyze them. Since this toxin's effect wears off over time, it is repeated every three or four months.<br /><br /><br /><br />Is it absolutely NOT possible that the spasms and tilting of the head are an attempt by the nervous system to accommodate for a misalignment of the jaws? Does it seem farfetched?  Jaw alignment DOES affect the head and neck alignment. When the upper cervical vertebrae are misaligned the nervous system tightens the neck muscles as a protective reflect.<br /><br /><br /><br />Mike has been suffering from Cervical Dystonia for over a decade. He was diagnosed by physicians at Mayo clinic in Minnesota who gave Botulinum toxin injection in his neck muscles.  He had limited relief from it.  Later it was repeated at Mayo clinic in Arizona.  This time the relief was even less. Mike had accepted that nothing can be done.<br /><br /><br /><br />Mike came to us for relief of jaw pain and headache.  At the end of the visit to diagnose the optimal Neuromuscular jaw position that also optimizes neck and head posture a bite record is taken. This is called a 'myobite'.  His cervical dystonia was predictably aggravated when he turned his head to the left.  However when the myobite was placed in his mouth and he turned his head to the left, the dystonia was completely absent.  But once the myobite was removed and he put his natural teeth together, the spasms returned.  It is exciting to be able turn the spasms off when the jaw, neck and head posture is optimized through advanced Neuromuscular dental protocols.  Mike is starting orthotic therapy to help his jaw pain and headache. This orthotic is made to the myobite relation to maintain his jaw and neck in this alignment 24/7 as a diagnostic step for 90 days.  It will be amazing if his Cervical Dystonia is also relieved. I am very confident that it will.  The power of Advanced LVI Neuromuscular dentistry protocols continues to amaze us.{% endraw %}
