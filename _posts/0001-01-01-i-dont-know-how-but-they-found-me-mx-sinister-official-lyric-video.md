@@ -1,0 +1,15 @@
+---
+title: "I DONT KNOW HOW BUT THEY FOUND ME - Mx. Sinister (Official Lyric Video)"
+image: "https:\/\/i.ytimg.com\/vi\/D_lf3g4cWeg\/hqdefault.jpg"
+vid_id: "D_lf3g4cWeg"
+categories: "Music"
+tags: ["FOUND","Sinister","(Official"]
+date: "2021-06-14T07:38:13+03:00"
+vid_date: "2021-06-11T04:00:03Z"
+duration: "PT3M1S"
+viewcount: "87762"
+likeCount: "14930"
+dislikeCount: "21"
+channel: "I DONT KNOW HOW BUT THEY FOUND ME"
+---
+{% raw %}I DONT KNOW HOW BUT THEY FOUND ME - Mx. Sinister (Official Lyric Video)<br />Listen/Download the song &quot;Mx. Sinister&quot;: <a rel="nofollow" target="blank" href="https://found.ee/mxsnstr">https://found.ee/mxsnstr</a><br />Subscribe to iDKHOW on YouTube:  <a rel="nofollow" target="blank" href="https://found.ee/idkhow_yt">https://found.ee/idkhow_yt</a><br /><br />The new song &quot;Mx. Sinister&quot; is available now<br />iTunes: <a rel="nofollow" target="blank" href="http://found.ee/mxsnstr_it">http://found.ee/mxsnstr_it</a><br />Apple Music: <a rel="nofollow" target="blank" href="http://found.ee/mxsnstr_am">http://found.ee/mxsnstr_am</a><br />Spotify: <a rel="nofollow" target="blank" href="http://found.ee/mxsnstr_sp">http://found.ee/mxsnstr_sp</a> <br />Amazon: <a rel="nofollow" target="blank" href="http://found.ee/mxsnstr_amz">http://found.ee/mxsnstr_amz</a><br /><br />Listen to the album 'Razzmatazz', featuring iDKHOW's single &quot;New Invention&quot;: <a rel="nofollow" target="blank" href="http://found.ee/razzmatazz">http://found.ee/razzmatazz</a><br />iTunes: <a rel="nofollow" target="blank" href="http://found.ee/razzmatazz_it">http://found.ee/razzmatazz_it</a><br />Apple Music: <a rel="nofollow" target="blank" href="http://found.ee/razzmatazz_am">http://found.ee/razzmatazz_am</a><br />Spotify: <a rel="nofollow" target="blank" href="http://found.ee/razzmatazz_sp">http://found.ee/razzmatazz_sp</a> <br />Amazon: <a rel="nofollow" target="blank" href="http://found.ee/razzmatazz_amz">http://found.ee/razzmatazz_amz</a><br /><br />Stay connected with iDKHOW<br />Website: <a rel="nofollow" target="blank" href="https://found.ee/idkwebsite">https://found.ee/idkwebsite</a><br />Facebook: <a rel="nofollow" target="blank" href="https://found.ee/idkfacebook">https://found.ee/idkfacebook</a><br />Twitter: <a rel="nofollow" target="blank" href="https://found.ee/idktwitter">https://found.ee/idktwitter</a><br />Instagram: <a rel="nofollow" target="blank" href="https://found.ee/idkinstagram">https://found.ee/idkinstagram</a><br /><br />LYRICS<br />Oh you never seem to notice <br />when I follow you home <br />In the dark of your apartment <br />when you think you’re alone<br /> <br />What would it take <br />what else should I do? <br />How far must I go to prove.. <br />that I love you? <br />And I’ll get you yet <br />I’ve got to make you mine<br />just know I’m not the sinister type <br /><br />Oh you never seem to notice <br />that my heart beats for you <br />so I’ll open you up and make yours beat for me too <br />And I’ll get you yet <br />I’ve got to make you mine <br />just know I’m not the sinister type <br /><br /><br /><br />#MxSinister #DallonWeekes #iDKHOW{% endraw %}
