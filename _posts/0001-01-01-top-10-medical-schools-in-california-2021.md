@@ -1,0 +1,15 @@
+---
+title: "Top 10 Medical Schools in California 2021"
+image: "https:\/\/i.ytimg.com\/vi\/CDQEtq5_WvE\/hqdefault.jpg"
+vid_id: "CDQEtq5_WvE"
+categories: "Education"
+tags: ["medical schools in california","best medical schools","medical school rankings"]
+date: "2021-06-14T18:47:58+03:00"
+vid_date: "2021-06-14T15:21:45Z"
+duration: "PT9M22S"
+viewcount: "10"
+likeCount: "2"
+dislikeCount: "0"
+channel: "World Scholarship Forum"
+---
+{% raw %}Top 10 Medical Schools in California 2021<br />There are many reasons to consider schooling in one of the medical schools in California: great rankings, good reputation, state-of-the-art facilities, world-class infrastructure, and so on. These schools offer the highest level of education possible. In this video, we will be looking at the top 10 medical schools in California.<br />Before we continue, please subscribe to our YouTube channel by hitting the subscribe button below to get a notification on our next video.<br /><br />#1. Stanford School of Medicine<br />Stanford University is a renowned university usually ranked among the top three universities in the world. Its school of medicine is not any different. The history of Stanford School of Medicine can be dated back to 1858, when a physician in San Francisco, Elias Samuel Cooper, established the first medical school in the western United States.<br /><br />#2. University of California San Francisco School of Medicine<br />UCSF is home to the state’s second med school founded in 1864. Since then, it has trained some of the country’s best physicians and attracted top talent to its faculty. <br /><br />#3. University of California Los Angeles David Geffen School of Medicine<br />Formerly known as the University of California Los Angeles School of Medicine, the school was later renamed after David Geffen in honor of his $200million donation to the university in 2002. UCLA's David Geffen School of Medicine is one of the best medical schools in the nation, and it frequently appears in the U.S. News top 10 for both research and primary care training.<br /><br />#4. University of California San Diego School of Medicine<br />Like most top medical schools, the University of California San Diego School of Medicine offers several options for combining an M.D. with a master's degree. <br /><br />#5. University of Southern California Keck School of Medicine<br />The University of Southern California Keck School of Medicine was established in 1885. The school has about 1,200 students, 900 residents, and over 1,500 full-time staff.<br /><br />#medicalschoolsincalifornia<br />#bestmedicalschools<br />#medicalschoolrankings<br /><br />medical schools in california,best medical schools,medical school rankings,best medical schools in the us,top medical schools,top medical schools in the world,best medical schools in the world,california university of science and medicine,medical colleges,university of florida college of medicine,medical schools in texas,california medical schools,medical schools,best colleges in california,msar,medical schools california,best medical schools california{% endraw %}
