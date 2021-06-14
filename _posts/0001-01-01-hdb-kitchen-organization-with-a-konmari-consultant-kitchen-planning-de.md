@@ -1,0 +1,15 @@
+---
+title: "HDB Kitchen Organization with a KonMari Consultant | Kitchen Planning, Declutter & Tidying Tips"
+image: "https:\/\/i.ytimg.com\/vi\/-BjTMGE1g9Q\/hqdefault.jpg"
+vid_id: "-BjTMGE1g9Q"
+categories: "People-Blogs"
+tags: ["marie kondo","konmari","kitchen organisation ideas"]
+date: "2021-06-14T08:56:20+03:00"
+vid_date: "2021-05-16T13:00:00Z"
+duration: "PT18M7S"
+viewcount: "44200"
+likeCount: "504"
+dislikeCount: "27"
+channel: "The Limhaus Diary"
+---
+{% raw %}Hello! Welcome back to the Limhaus. In this episode, we have Esther, a certified Konmari Consultant in Singapore who helped us quite a bit when we were planning our space and when we first moved in. The KonMari Method encourages tidying by category – not by location. The process of the tidying journey begins with clothes, then moving on to books, papers, komono (miscellaneous items), and lastly, sentimental items.<br /><br />Since we moved in last Christmas, it's been a good 5 months and we started to see clutter again in our kitchen. In this episode, we'll share tips for a tidy kitchen through a decluttering and organizing session with Esther. Do watch on and find out more!<br /><br />You can also slide into Esther's dm at @yourtidyhalf on Instagram to book a free 30 mins virtual consultation with a certified KonMari consultant !! <br /><br /><a rel="nofollow" target="blank" href="https://www.yourtidyhalf.com">https://www.yourtidyhalf.com</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/yourtidyhalf">https://www.instagram.com/yourtidyhalf</a><br /><a rel="nofollow" target="blank" href="https://t.me/yourtidyhalf">https://t.me/yourtidyhalf</a><br /><br />Featured on this video: <br />Customized Cutlery Storages, Transparent Handle Containers from Daiso Singapore <br />Ninja Foodi - 25% off Ninja Foodi OP300 (RRP $499) with code &quot;furrychan300&quot;<br /><a rel="nofollow" target="blank" href="https://www.ninjakitchen.sg/">https://www.ninjakitchen.sg/</a><br />Kids containers - www.iamwowmom.com<br /><br /><br />Connect with us on our other socials! :<br />The Lim Haus Official | <a rel="nofollow" target="blank" href="https://www.instagram.com/thelimhaus">https://www.instagram.com/thelimhaus</a><br />Furry | <a rel="nofollow" target="blank" href="https://www.instagram.com/furrychan">https://www.instagram.com/furrychan</a><br />Patrick | <a rel="nofollow" target="blank" href="https://www.instagram.com/thepolycharcoal">https://www.instagram.com/thepolycharcoal</a><br /><br />GEAR<br />Main Camera - Sony a7C<br />Secondary Camera - a6500<br />LENS - Laowa 9mm f2.8, Sigma 30mm f1.4, Sigma 16mm f1.4<br />GIMBAL - Zhiyun Weebill Lab<br />MIC - Rode Wireless Go, Zoom H1n<br /><br />Channel's Music Source<br />Artlist - <a rel="nofollow" target="blank" href="https://artlist.io/the-2113261">https://artlist.io/the-2113261</a> (Get 2 months free!! )<br />Epidemic Sound - <a rel="nofollow" target="blank" href="https://www.epidemicsound.com/referral/ua1bgd/">https://www.epidemicsound.com/referral/ua1bgd/</a> (30-day free trial!! ){% endraw %}
