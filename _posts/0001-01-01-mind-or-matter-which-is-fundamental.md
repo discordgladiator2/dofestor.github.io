@@ -1,0 +1,15 @@
+---
+title: "Mind or Matter: Which is Fundamental?"
+image: "https:\/\/i.ytimg.com\/vi\/pOl8Djm12-c\/hqdefault.jpg"
+vid_id: "pOl8Djm12-c"
+categories: "Entertainment"
+tags: ["Matter:","Which","Fundamental?"]
+date: "2021-06-15T06:01:50+03:00"
+vid_date: "2021-06-11T21:00:11Z"
+duration: "PT22M45S"
+viewcount: "11003"
+likeCount: "999"
+dislikeCount: "17"
+channel: "InspiringPhilosophy"
+---
+{% raw %}Many believe we just a collection of particles, and nothing more than material beings. But does the data in philosophy and science really support this understanding?<br /><br />Don't forget to help us create more videos! We need your support:<br /><br /><a rel="nofollow" target="blank" href="https://www.patreon.com/inspiringphilosophy">https://www.patreon.com/inspiringphilosophy</a><br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC5qDet6sa6rODi7t6wfpg8g/join">https://www.youtube.com/channel/UC5qDet6sa6rODi7t6wfpg8g/join</a><br /><br />Sources:<br /><br />Nigel Cundy - What is Physics?<br /><br />Wouter Schmitz - Particles, Fields and Forces<br /><br />Eliano Pessa - The Concept of Particle in Quantum Field theory<br /><a rel="nofollow" target="blank" href="https://arxiv.org/abs/0907.0178">https://arxiv.org/abs/0907.0178</a><br /><br />David John Baker - Against Field Interpretations of Quantum Field Theory<br /><a rel="nofollow" target="blank" href="https://philpapers.org/rec/BAKAFI">https://philpapers.org/rec/BAKAFI</a><br /><br />Meinard Kuhlmann - Physicists Debate Whether The World Is Made Of Particles Or Fields Or Something Else Entirely<br /><a rel="nofollow" target="blank" href="https://3quarksdaily.com/3quarksdaily/2013/07/physicists-debate-whether-the-world-is-made-of-particles-or-fields-or-something-else-entirely.html">https://3quarksdaily.com/3quarksdaily/2013/07/physicists-debate-whether-the-world-is-made-of-particles-or-fields-or-something-else-entirely.html</a><br /><br />Wave function:<br /><a rel="nofollow" target="blank" href="https://www.britannica.com/science/wave-function">https://www.britannica.com/science/wave-function</a><br /><br />An experimental test of non-local realism<br /><a rel="nofollow" target="blank" href="https://www.nature.com/articles/nature05677">https://www.nature.com/articles/nature05677</a><br /><br />Bruce Rosenblum &amp; Fred Kuttner - The Quantum Enigma<br /><br />Werner Heisenberg - The Representation of Nature in Contemporary Physics<br /><a rel="nofollow" target="blank" href="https://www.jstor.org/stable/20026454">https://www.jstor.org/stable/20026454</a><br /><br />Paul Davies &amp;  John Gribbin - The Matter Myth<br /><br />Kenneth L. Pearce - Idealism: New Essays in Metaphysics<br /><br />Leonard Susskind - The Black Hole War<br /><br />Thomas Nagel - Mind and Cosmos<br /><br />Keith Ward - More than Matter<br /><br />Donald Hoffman - Physics from Consciousness<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=vQUpU4W6SDs">https://www.youtube.com/watch?v=vQUpU4W6SDs</a><br /><br />#Quantum #Science #Idealism{% endraw %}
