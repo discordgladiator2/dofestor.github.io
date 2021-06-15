@@ -1,0 +1,15 @@
+---
+title: "Wheels on the Bus and Vehicles | +More Nursery Rhymes & Kids Songs - CoCoMelon"
+image: "https:\/\/i.ytimg.com\/vi\/okq0ux8de70\/hqdefault.jpg"
+vid_id: "okq0ux8de70"
+categories: "Education"
+tags: ["kindergarten","abckidtv","sing-along songs"]
+date: "2021-06-15T19:37:03+03:00"
+vid_date: "2016-06-24T07:00:01Z"
+duration: "PT1H17M51S"
+viewcount: "56207672"
+likeCount: "96490"
+dislikeCount: "76470"
+channel: "Cocomelon - Nursery Rhymes"
+---
+{% raw %}Subscribe for new videos every week: <a rel="nofollow" target="blank" href="https://www.youtube.com/c/cocomelon?sub_confirmation=1">https://www.youtube.com/c/cocomelon?sub_confirmation=1</a><br /><br />Enjoy our other nursery rhymes and kids songs:<br />Please and Thank You <a rel="nofollow" target="blank" href="https://youtu.be/ANChOA4SyL0">https://youtu.be/ANChOA4SyL0</a><br />ABC Phonics Song <a rel="nofollow" target="blank" href="https://youtu.be/wSSlwtED2Yg">https://youtu.be/wSSlwtED2Yg</a><br />I'm Sorry/Excuse Me Song <a rel="nofollow" target="blank" href="https://youtu.be/BG7oqAQsv-k">https://youtu.be/BG7oqAQsv-k</a><br />Clean Up Song <a rel="nofollow" target="blank" href="https://youtu.be/v1rBxf4VgaA">https://youtu.be/v1rBxf4VgaA</a><br />Sharing Song <a rel="nofollow" target="blank" href="https://youtu.be/96fq4YmYjzQ">https://youtu.be/96fq4YmYjzQ</a><br />Happy Birthday Song <a rel="nofollow" target="blank" href="https://youtu.be/ho08YLYDM88">https://youtu.be/ho08YLYDM88</a><br />Our Original ABC Song <a rel="nofollow" target="blank" href="https://youtu.be/_UR-l3QI2nE">https://youtu.be/_UR-l3QI2nE</a><br /><br />'Sound Effects by <a rel="nofollow" target="blank" href="http://audiomicro.com/sound-effects'">http://audiomicro.com/sound-effects'</a><br /><br />About Cocomelon:<br /><br />Where kids can be happy and smart!<br /><br />At Cocomelon, our goal is to help make learning a fun and enjoyable experience for kids by creating beautiful 3D animation, educational lyrics, and toe-tapping music. <br /><br />Kids will laugh, dance, sing, and play along with our videos, learning letters, numbers, animal sounds, colors, and much, much more while simply enjoying our friendly characters and fun stories.<br /><br />We also make life easier for parents who want to keep their kids happily entertained, giving you the peace of mind that your children are receiving quality educational content.  Our videos also give you an opportunity to teach and play with your children as you both watch!<br /><br />WEBSITE: <a rel="nofollow" target="blank" href="http://www.Cocomelon.com">http://www.Cocomelon.com</a><br />FACEBOOK: <a rel="nofollow" target="blank" href="https://www.facebook.com/Cocomelonkids">https://www.facebook.com/Cocomelonkids</a><br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/cocomelon_official/">https://www.instagram.com/cocomelon_official/</a><br />TWITTER: <a rel="nofollow" target="blank" href="https://www.twitter.com/Cocomelonkids">https://www.twitter.com/Cocomelonkids</a><br /><br /><br />Copyright © Treasure Studio, Inc. All rights reserved.{% endraw %}
