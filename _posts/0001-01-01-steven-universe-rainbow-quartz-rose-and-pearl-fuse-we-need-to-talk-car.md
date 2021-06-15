@@ -1,0 +1,15 @@
+---
+title: "Steven Universe | Rainbow Quartz | Rose and Pearl Fuse | We Need to Talk | Cartoon Network"
+image: "https:\/\/i.ytimg.com\/vi\/6OfY0NOXunQ\/hqdefault.jpg"
+vid_id: "6OfY0NOXunQ"
+categories: "Film-Animation"
+tags: ["save the light","steven universe","stephen universe"]
+date: "2021-06-15T20:06:58+03:00"
+vid_date: "2019-01-15T06:00:01Z"
+duration: "PT5M20S"
+viewcount: "1676848"
+likeCount: "29704"
+dislikeCount: "664"
+channel: "Steven Universe"
+---
+{% raw %}► New videos: <a rel="nofollow" target="blank" href="https://bit.ly/2Ovq2vn">https://bit.ly/2Ovq2vn</a><br />Rose and Pearl fuse into Rainbow Quartz.<br /><br />► Subscribe to the official Steven Universe YouTube channel: <a rel="nofollow" target="blank" href="http://bit.ly/2tt6kqf">http://bit.ly/2tt6kqf</a><br />► New videos every Thursday and Saturday: <a rel="nofollow" target="blank" href="http://bit.ly/2stLlj3">http://bit.ly/2stLlj3</a><br /><br />Believe in Steven! Steven Universe is a half-human, half-Gem hero who's learning to save the world with the magical powers that come from his bellybutton. Steven may not be as powerful as the Crystal Gems. Or as smart. But that doesn't stop him from joining Garnet, Amethyst and Pearl on their magical adventures - where Steven always finds a surprising way to save the day.<br /><br />► Click more clips: <a rel="nofollow" target="blank" href="http://bit.ly/2stLlj3">http://bit.ly/2stLlj3</a> ▶︎ Visit the Cartoon Network website for more fun activities, games and downloads and check out our videos on Cartoon Network YouTube Channel:<br /> <br />🇬🇧 United Kingdom 🇬🇧<br />www.cartoonnetwork.co.uk – website<br />www.youtube.com/cartoonnetworkuk - YouTube Channel<br /> <br />🇩🇰 Danmark 🇩🇰<br />www.cartoonnetwork.dk – website<br />www.youtube.com/cartoonnetworkdk - YouTube Channel<br /> <br />🇸🇪 Sverige 🇸🇪<br />www.cartoonnetwork.se – website<br />www.youtube.com/cartoonnetworkse - YouTube Channel<br /> <br />🇳🇴 Norge 🇳🇴<br />www.cartoonnetwork.no – website<br />www.youtube.com/cartoonnetworkno - YouTube Channel<br /><br />🇮🇳India 🇮🇳<br />www.cartoonnetworkindia.com/ - website<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/cnindia">https://www.youtube.com/cnindia</a> - YouTube Channel<br /><br />🇦🇺Australia 🇦🇺<br />www.cartoonnetwork.com.au/ - website<br />www.youtube.com/cartoonnetworkau1 - YouTube Channel<br /><br />Asia<br />www.cartoonnetworkasia.com - website<br />www.youtube.com/cartoonnetworkapac  - YouTube Channel<br /><br />🇵🇭Philippines 🇵🇭<br />www.cartoonnetworkasia.com - website<br />www.youtube.com/channel/UCutr4CI5duZGblRX8Ea6x-A - YouTube Channel<br /><br />🇮🇩Indonesia 🇮🇩<br />www.cartoonnetworkasia.com - website<br /><a rel="nofollow" target="blank" href="https://www.youtube.com/CartoonNetworkIndonesia">https://www.youtube.com/CartoonNetworkIndonesia</a> - YouTube Channel<br /><br />🇲🇾Malaysia 🇲🇾<br />www.cartoonnetworkasia.com - website<br />www.youtube.com/CartoonNetworkMalaysia - YouTube Channel<br /><br />#stevenuniverse{% endraw %}
