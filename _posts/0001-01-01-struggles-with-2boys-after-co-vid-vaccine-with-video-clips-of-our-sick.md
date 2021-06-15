@@ -1,0 +1,15 @@
+---
+title: "Struggles with 2boys after Co vid Vaccine with Video Clips of our SICK day DIML\/Family Traveler VLOG"
+image: "https:\/\/i.ytimg.com\/vi\/dPbct9OYOy4\/hqdefault.jpg"
+vid_id: "dPbct9OYOy4"
+categories: "People-Blogs"
+tags: ["FamilyTravelerVLOGS","bigg","boss"]
+date: "2021-06-16T00:10:57+03:00"
+vid_date: "2021-06-15T13:31:47Z"
+duration: "PT22M36S"
+viewcount: "10987"
+likeCount: ""
+dislikeCount: ""
+channel: "Family Traveler அமெரிக்க VLOGS"
+---
+{% raw %}Hi friends vanakam<br />our instagram <br /><a rel="nofollow" target="blank" href="https://www.instagram.com/familytravelervlogs/">https://www.instagram.com/familytravelervlogs/</a><br />this video is the diml of our covid vaccine injection taking also how i managed two boys during my sick day of after Pfizer vaccine <br /><br />our first vaccine video<br /><a rel="nofollow" target="blank" href="https://youtu.be/g_I8HNrZxKc">https://youtu.be/g_I8HNrZxKc</a><br /><br />my complicated birth story<br /><a rel="nofollow" target="blank" href="https://youtu.be/91xjk3s_EWU">https://youtu.be/91xjk3s_EWU</a><br />__<br />our Family Recipe channel link <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCogGP7a-S-CiAxZTrC4GvZw">https://www.youtube.com/channel/UCogGP7a-S-CiAxZTrC4GvZw</a><br /><br />☼ NOTE :  SUBSCRIBE so you won't miss any future episode from us : <a rel="nofollow" target="blank" href="https://bit.ly/2GVwEjq">https://bit.ly/2GVwEjq</a><br />__<br />G E T  T O  K N O W  U S<br /><br />We love travelling together as a family. We (Satish, Dr.Swetha) are tamil channel youtuber (FamilyTravelerVLOGS) from Chennai, Tamil Nadu, India and currently residing in USA. SUBSCRIBE (it's free) to follow our travel! <br />__<br /><br />☼ WANT TO FOLLOW ALONG OUR JOURNEY AND SUPPORT US ? :<br /><br />⌲ 🔻🔻S U B S C R I B E 🔻🔻<br /><a rel="nofollow" target="blank" href="https://bit.ly/2GVwEjq">https://bit.ly/2GVwEjq</a><br />Don't forget to turn notification bell on so you WON'T miss any travel video from us!<br /><br />☼ OUR CAMERA GEAR  - Our Travel and Vlogging Kit is always changing/added you can check it out here for the real time update : <a rel="nofollow" target="blank" href="https://bit.ly/2H8OjUN">https://bit.ly/2H8OjUN</a><br /><br />⌲ L E T' S  C O N N E C T !<br />YouTube: <a rel="nofollow" target="blank" href="https://www.youtube.com/FamilyTravelerVLOGS">https://www.youtube.com/FamilyTravelerVLOGS</a><br />Facebook: <a rel="nofollow" target="blank" href="https://fb.me/fmlytrvlr">https://fb.me/fmlytrvlr</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/familytravelervlogs/">https://www.instagram.com/familytravelervlogs/</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/fmlytrvlr">https://twitter.com/fmlytrvlr</a><br />Email: fmlyTRVLR@gmail.com<br /><br />#FamilyTravelerVLOGS #tamilyoutuber #tamilvlog #tamilyoutubechannel #tamilvlogger #tamillifeinusa #tamillifeinnewYork #tamilvlogs #vlogs #tamillife #tamillife #lifestyle{% endraw %}
