@@ -1,0 +1,15 @@
+---
+title: "Funny Chinese Words & Phrases with Interesting Meanings We Often Use in Daily Life"
+image: "https:\/\/i.ytimg.com\/vi\/1n5KfHRLrrs\/hqdefault.jpg"
+vid_id: "1n5KfHRLrrs"
+categories: "Education"
+tags: ["Chinese words","learn Chinese","Chinese phrases"]
+date: "2021-06-16T19:56:08+03:00"
+vid_date: "2021-06-16T12:00:01Z"
+duration: "PT10M16S"
+viewcount: "1240"
+likeCount: "147"
+dislikeCount: "3"
+channel: "Everyday Chinese"
+---
+{% raw %}Funny Chinese words and phrases with interesting meanings &amp; uses (based on 香 xiāng) that we often use in daily life.<br />Join our premium membership to unlock all Chinese lessons on our site: <br />► <a rel="nofollow" target="blank" href="https://bit.ly/ECMembership">https://bit.ly/ECMembership</a><br />Then go to ► <a rel="nofollow" target="blank" href="https://bit.ly/3pZQezA">https://bit.ly/3pZQezA</a> to download the mp3 &amp; pdf files of this lesson.<br />This Chinese lesson is designed for intermediate &amp; advanced Chinese learners. The PDF transcript and mp3 will help you with on-the-go learning to fully understand the lesson and expand your Chinese vocabulary &amp; knowledge.<br /><br />If you like our content, please support us to produce more Chinese lessons by joining our membership. Thanks!<br /><br />You can also enroll in structured Chinese courses individually. BTW, don't miss the special sales of our Chinese courses. 🎁 Get 50% off all the featured Chinese courses we have available: <br />► <a rel="nofollow" target="blank" href="https://www.everydaychinese.com/featured-courses/">https://www.everydaychinese.com/featured-courses/</a> Ending soon! <br />You can learn those courses one by one or choose the course to stduy at your level.<br />✔ Chinese Pronunciation Course (FREE)<br />✔ Everyday Chinese 101 Course (50% OFF)<br />✔ Beginner Chinese HSK 1 Course (50% OFF)<br />✔ Elementary Chinese HSK 2 Course (50% OFF)<br />✔ Intermediate Chinese HSK 3 Course (50% OFF)<br />✔ Spoken Chinese Course (50% OFF)<br /><br />If you have any questions or suggestions, please let us know in the comments.<br />Follow us on: <br />● YouTube channel: <a rel="nofollow" target="blank" href="https://goo.gl/H7TeQo">https://goo.gl/H7TeQo</a> <br />● WeChat Public: LearnChineseEveryDay<br />● TikTok: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@everydaychinesegogo_2019">https://www.tiktok.com/@everydaychinesegogo_2019</a><br />● Facebook: <a rel="nofollow" target="blank" href="https://fb.me/LearnChineseinChinatown/">https://fb.me/LearnChineseinChinatown/</a><br />● Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/everydaychineseofficial/">https://www.instagram.com/everydaychineseofficial/</a><br />● Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/521Chinese/">https://twitter.com/521Chinese/</a><br /><br />Chinese language topics:<br />#LearnChinese #ChineseWords #ChinesePhrases<br />Chinese lessons, Mandarin lessons, learn Mandarin, beginner Chinese, learn Chinese from scratch, learn Mandarin for beginners, Chinese vocabulary for beginners{% endraw %}
