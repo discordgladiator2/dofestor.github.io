@@ -1,0 +1,15 @@
+---
+title: "Permaculture Gardening Harvest, Backyard Sustainable Food Forest"
+image: "https:\/\/i.ytimg.com\/vi\/8TYwffD_sWg\/hqdefault.jpg"
+vid_id: "8TYwffD_sWg"
+categories: "Howto-Style"
+tags: ["permaculture","permaculture gardening harvest","permaculture garden"]
+date: "2021-06-16T05:44:41+03:00"
+vid_date: "2017-09-13T23:43:37Z"
+duration: "PT6M39S"
+viewcount: "3994589"
+likeCount: "17555"
+dislikeCount: "1434"
+channel: "The Gardening Channel With James Prigioni"
+---
+{% raw %}The Permaculture Food Forest is still producing a lot of food and it sure is delicious. This is beyond organic gardening. This type of gardening is as close to natural farming as you can get. At this time of year the amount of food each week is to much to keep up with, so its time to get preserving.<br /><br />Thanks for the kind words and support 😁🐕❤️<br /><br />SUPPORT ME AND TUCK<br /><br />→Amazon affiliate link: <a rel="nofollow" target="blank" href="https://amzn.to/2z7NIRQ">https://amzn.to/2z7NIRQ</a><br /><br />→Merchandise: <a rel="nofollow" target="blank" href="https://teespring.com/stores/jps-store-5">https://teespring.com/stores/jps-store-5</a><br /><br />MY FAVORITE GARDEN PRODUCTS!<br /><br />→ Birdies Raised Beds: COUPON CODE: TUCK <a rel="nofollow" target="blank" href="https://shop.epicgardening.com">https://shop.epicgardening.com</a><br /><br />→Mykos Pure Mycorrhizal Inoculant:  <a rel="nofollow" target="blank" href="https://amzn.to/2WCZfRX">https://amzn.to/2WCZfRX</a><br /><br />→6 Mil Greenhouse plastic: <a rel="nofollow" target="blank" href="https://amzn.to/39m1YCQ">https://amzn.to/39m1YCQ</a><br /><br />→Row Cover: <a rel="nofollow" target="blank" href="https://amzn.to/2GR12h5">https://amzn.to/2GR12h5</a><br /><br />→Neem Oil: <a rel="nofollow" target="blank" href="https://amzn.to/2NgXfta">https://amzn.to/2NgXfta</a><br /><br />→Insect Netting: <a rel="nofollow" target="blank" href="https://amzn.to/2DbJ9I7">https://amzn.to/2DbJ9I7</a><br /><br />→BT Spray for Brassicas: <a rel="nofollow" target="blank" href="https://amzn.to/3erdkss">https://amzn.to/3erdkss</a><br /><br />→Pruners I use:  <a rel="nofollow" target="blank" href="https://amzn.to/2QsNCtT">https://amzn.to/2QsNCtT</a><br /><br />→Tomato Clips: <a rel="nofollow" target="blank" href="https://amzn.to/2YxoaGr">https://amzn.to/2YxoaGr</a><br /><br />→Square Foot Gardening Book: <a rel="nofollow" target="blank" href="https://amzn.to/3bUwCVo">https://amzn.to/3bUwCVo</a><br /><br />→My Boots <a rel="nofollow" target="blank" href="https://amzn.to/2NZq5Pe">https://amzn.to/2NZq5Pe</a><br /><br />ALSO FIND ME ON<br /><br />→Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/JamesPrigioniGardening">https://www.facebook.com/JamesPrigioniGardening</a><br /><br />→Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/JamesPrigioni">https://twitter.com/JamesPrigioni</a><br /><br />→Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/jamesprigioni">https://www.instagram.com/jamesprigioni</a><br /><br />→Contact: (Business Only) thefranchisse3@gmail.com{% endraw %}
