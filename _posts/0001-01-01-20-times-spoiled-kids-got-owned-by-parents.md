@@ -1,0 +1,15 @@
+---
+title: "20 Times Spoiled Kids Got OWNED By Parents"
+image: "https:\/\/i.ytimg.com\/vi\/JDZXh6sKyfQ\/hqdefault.jpg"
+vid_id: "JDZXh6sKyfQ"
+categories: "Gaming"
+tags: ["30-07-2020","youtube","spoiled kid owned"]
+date: "2021-06-16T16:06:07+03:00"
+vid_date: "2020-08-20T21:25:51Z"
+duration: "PT14M21S"
+viewcount: "6502270"
+likeCount: "123830"
+dislikeCount: "9984"
+channel: "Top Extract"
+---
+{% raw %}20 Times Spoiled Kids Got OWNED By Parents<br /><br />There's no feeling more satisfying than seeing spoiled kids get exactly what they deserve an instant dose of karma, today we’re counting 20 Times spoiled kids get owned by parents <br /><br />1:This first dad was sick of his daughter posting things about him on facebook so he destroys his daughters laptop<br /><br />2:This mother gets sick of her spoiled daughter so she throws her phone in the family pool<br /><br />3:This next father gets sick of his son being spoiled so he fakes that there’s something exciting behind the front door when the son checks he gets locked out<br /><br />4:This next kid is very spiteful to his rival in this spelling bee doing things such as clapping in his face but when he goes up for his word he gets completely embarrassed<br /><br />5: This next dad breaks this guys xbox games  as he is sick of him laying around the house jobless<br /><br />6: This angry mum gets annoyed at her son who was always playing fortnite the mother takes the sons ps4 and throws it out the window<br />7: this next mother takes her sons laptop out of his hands and smashes it on the floor<br /><br />8: this next dad breaks his kids phone in after he comes home and sees hes been on it all day <br /><br /><br />9: this next dad throws this teenagers ps4 out the window after the kid back talks his father <br /><br />10: this father makes his daughter apologize to a grocery store after she stole money <br /><br />11: this next kid prank calls 911 as  a joke but is then surprised when they turn up to his house<br /><br />12: this next dad runs over this kids xbox after he found out he stole something <br /><br />13: this next mother steals her sons old xbox and hides it <br /><br />14: this next mother throws away this sons new iphone he doesn’t even get to open<br /><br />15: to teach her kids a lesson this southern mother shoots her kids electronics with a shotgun<br /><br />16: this father throws this sons xbox into this swimming pool <br /><br />17: this dad finds out his son has been using all of his fathers data and when confronting the son he becomes rude so the dad destroys the sons phone<br /><br />18: this japanese father breaks his spoiled sons ps3 and if you watch the video you’ll understand why<br /><br />19: This son refuses to help his mother clean because he’s looking at youtube comments so his dad breaks the monitor<br /><br />20: this son is streaming on twitch, his mother comes in and yells at him for not going to school that day, the kid thinks he turned his livestream off but he didn’t{% endraw %}
