@@ -1,0 +1,15 @@
+---
+title: "B2 First speaking test - Victoria and Edward | Cambridge English"
+image: "https:\/\/i.ytimg.com\/vi\/EdeZp0n0JHw\/hqdefault.jpg"
+vid_id: "EdeZp0n0JHw"
+categories: "Education"
+tags: ["b2 first speaking test","fce speaking exam","fce speaking"]
+date: "2021-06-16T10:35:41+03:00"
+vid_date: "2014-07-21T13:05:13Z"
+duration: "PT14M23S"
+viewcount: "2239123"
+likeCount: "18555"
+dislikeCount: "493"
+channel: "Cambridge English"
+---
+{% raw %}Find out more about the B2 First exam: <a rel="nofollow" target="blank" href="https://camengli.sh/3oIFwff">https://camengli.sh/3oIFwff</a><br /><br />Read examiner's comments: <a rel="nofollow" target="blank" href="https://camengli.sh/38FL2Kc">https://camengli.sh/38FL2Kc</a><br /><br />Time allowed: 14 minutes per pair of candidates<br />Number of parts: 4<br />Marks: 20% total<br />You have to talk: with the examiner with the other candidate on your own<br /><br />Part 1 (Interview)<br />What's in Part 1? Conversation with the examiner. The examiner asks questions and you may have to give information about your interests, studies, career, etc.<br /><br />What do I have to practise? Giving information about yourself and expressing your opinion about various topics.<br /><br />How long do I have to speak? 2 minutes<br /><br />Part 2 (Long turn)<br />What's in Part 2? The examiner gives you two photographs and asks you to talk about them. You have to speak for 1 minute without interruption and the interlocutor then asks the other candidate to comment on your photographs for about 30 seconds.<br /><br />The other candidate receives a different set of photographs and you have to listen and comment when they have finished speaking. The question you have to answer about your photographs is written at the top of the page to remind you what you should talk about.<br /><br />What do I have to practise? Talking on your own about something: comparing, describing, expressing opinions, speculating.<br /><br />How long do I have to speak? 1 minute per candidate<br /><br />Part 3 (Collaborative task)<br />What's in Part 3? Conversation with the other candidate. The examiner gives you some material and a task to do. You have to talk with the other candidate and make a decision.<br /><br />What do I have to practise? Exchanging ideas, expressing and justifying opinions, agreeing and/or disagreeing, suggesting, speculating, evaluating, reaching a decision through negotiation, etc.<br /><br />How long do we have to speak? 3 minutes (a 2-minute discussion followed by a 1-minute decision-making task)<br /><br />Part 4 (Discussion)<br />What's in Part 4? Further discussion with the other candidate, guided by questions from the examiner, about the topics or issues raised in the task in Part 3.<br /><br />What do I have to practise? Expressing and justifying opinions, agreeing and/or disagreeing.<br /><br />How long do we have to speak? 4 minutes<br /><br />Cambridge English speaking tests take place with one or two other candidates, and two examiners. This makes your test more realistic and more reliable.{% endraw %}
