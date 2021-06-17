@@ -1,0 +1,15 @@
+---
+title: "' 𝙵 𝚊 𝚕 𝚜 𝚎 ' - Trap x Wave Mix"
+image: "https:\/\/i.ytimg.com\/vi\/wg3ZXFthmg8\/hqdefault.jpg"
+vid_id: "wg3ZXFthmg8"
+categories: "Music"
+tags: ["trap","trap mix","music"]
+date: "2021-06-18T02:31:17+03:00"
+vid_date: "2021-05-18T14:00:31Z"
+duration: "PT1H3M27S"
+viewcount: "39629"
+likeCount: "1728"
+dislikeCount: "19"
+channel: "Frisson"
+---
+{% raw %}Trap &amp; Wave playlist on Spotify: <a rel="nofollow" target="blank" href="https://sptfy.com/5zim">https://sptfy.com/5zim</a><br />Follow the frisson sense: <br /><a rel="nofollow" target="blank" href="https://www.youtube.com/c/Frissonsense">https://www.youtube.com/c/Frissonsense</a><br /><a rel="nofollow" target="blank" href="https://soundcloud.com/frissonsc">https://soundcloud.com/frissonsc</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/frisson4u/">https://www.instagram.com/frisson4u/</a><br />frissonmusic.cont@gmail.com<br /><br />🙏Support the channel:  <a rel="nofollow" target="blank" href="https://www.donationalerts.com/r/frissonsense">https://www.donationalerts.com/r/frissonsense</a><br />----------------------------------------------------------------------------------------------<br />🌱Artwork by C a t h:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/p/CN5QaKaplY7/">https://www.instagram.com/p/CN5QaKaplY7/</a><br /><a rel="nofollow" target="blank" href="https://vardise.com/collections/cathpun?ref=z4a8yt8b0lb">https://vardise.com/collections/cathpun?ref=z4a8yt8b0lb</a><br />----------------------------------------------------------------------------------------------<br />✔️Tracklist: <br />1.[00:00] Jack Instinct x SAGE - COSMIC<br />2.[03:32] KTrek - Omsaya<br />3.[06:37] Synge &amp; OSIAS - In my arms<br />4.[09:44] WEVLTH - BACK TO LIFE (W/ TEARZ)<br />5.[14:23] Wevlth &amp; Hyperforms - Get 2 Me<br />6.[16:52] 𝔦𝔴𝔦𝔩𝔩𝔡𝔦𝔢𝔥(not found)<br />7.[18:28] ÆSTRAL - Shamed<br />8.[22:04] Nightwane - Last Chance<br />9.[24:21] JUCHE - Fly Away<br />10.[28:25] KTrek x Just Connor - kaelo<br />11.[31:17] SBU - Let The Rain Clouds Come (feat. Enrosa)<br />12.[34:58] Willix - Hyperion [Hardwave Chapter Three]<br />13.[38:35] ATC - All Around The World (Skeler. &amp; Juche Remix)<br />14.[40:50] SVTOKO聡子 - HIMITSU 秘密<br />15.[44:56] PRXZM - Adrenaline (Deadcrow Remix)<br />16.[48:42] JUCHE - NFS<br />17.[52:34] nightblure - Divine<br />18.[56:18] SVTOKO聡子 - REBIRTH 再生<br />19.[01:00:10] Dr. Rader - Shadow<br />20.[01:02:35] weeyue - Worse<br /><br />----------------------------------------------------------------------------------------------<br /><br />❗❗❗COPYRIGHT:<br />I don't own the rights to any of the songs I promote. To use the tracks in your videos you will need to ask artists.<br />Most of the songs aren't Copyright Free, either I have permission to use.<br />If a video infringes your copyrights, please email us at frissonmusic.cont@gmail.com<br /><br />✍️SUBMIT your Music or Images here: frissonmusic.cont@gmail.com<br /><br />#trap #wave #mix{% endraw %}
