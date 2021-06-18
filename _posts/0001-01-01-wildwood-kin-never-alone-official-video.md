@@ -1,0 +1,15 @@
+---
+title: "Wildwood Kin - Never Alone (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/PAvegL1ZrqE\/hqdefault.jpg"
+vid_id: "PAvegL1ZrqE"
+categories: "Music"
+tags: ["Wildwood kin","never alone","Wildwood kin never alone"]
+date: "2021-06-18T03:31:42+03:00"
+vid_date: "2019-07-05T10:00:04Z"
+duration: "PT3M48S"
+viewcount: "72066"
+likeCount: "882"
+dislikeCount: "14"
+channel: "WildwoodKinVEVO"
+---
+{% raw %}Wildwood Kin - Never Alone (Official Video) <br />New album ‘Wildwood Kin’ OUT NOW – <a rel="nofollow" target="blank" href="https://smarturl.it/WildwoodKinYTD?IQid=NASV">https://smarturl.it/WildwoodKinYTD?IQid=NASV</a> <br />Listen to Wildwood Kin Complete Playlist - <a rel="nofollow" target="blank" href="https://smarturl.it/Wildwoodkin_playlist?IQid=NASV">https://smarturl.it/Wildwoodkin_playlist?IQid=NASV</a>   <br /> <br />Follow Wildwood Kin <br />Facebook – <a rel="nofollow" target="blank" href="https://smarturl.it/WildwoodKin_fb?IQid=NASV">https://smarturl.it/WildwoodKin_fb?IQid=NASV</a>  <br />Twitter – <a rel="nofollow" target="blank" href="https://smarturl.it/WildwoodKin_tw?IQid=NASV">https://smarturl.it/WildwoodKin_tw?IQid=NASV</a> <br />Instagram – <a rel="nofollow" target="blank" href="https://smarturl.it/WildwoodKin_IG?IQid=NASV">https://smarturl.it/WildwoodKin_IG?IQid=NASV</a>  <br />Website – <a rel="nofollow" target="blank" href="https://smarturl.it/WildwoodKin_w?IQid=NASV">https://smarturl.it/WildwoodKin_w?IQid=NASV</a> <br />Newsletter –<a rel="nofollow" target="blank" href="https://smarturl.it/WildwoodKin_signup?IQid=NASV">https://smarturl.it/WildwoodKin_signup?IQid=NASV</a><br /><br />Lyrics <br />Lost in the void fading<br />I feel your soul shaking <br />You have been deafened by the dissonance <br />Your spirit left broken <br />Words you have not spoken <br />I see the danger in your distance <br /><br />Soon you will know <br />You’re never alone <br />You’re never alone <br /><br />When the storms are raging <br />When the bows are breaking <br />Let me show you a way to a place <br />Where you’ll know you’re never alone<br />When your heart is grieving <br />Air is hard to breathe in <br />Let me show you a way to a place <br />Where you’ll know you’re never alone <br /><br />There is a day waiting <br />Still holding out aching <br />All of this pain will be forgotten <br />A hope will rise higher <br />A battle cry of fire <br />It will burn brighter in the morning <br /><br />Soon you will know <br />You’re never alone<br />You’re never alone <br /><br />When the storms are raging <br />When the bows are breaking <br />Let me show you a way to a place <br />Where you’ll know you’re never alone<br />When your heart is grieving <br />Air is hard to breathe in <br />Let me show you a way to a place <br />Where you’ll know you’re never alone <br /><br />When the storms are raging <br />When the bows are breaking <br />Let me show you a way to a place <br />Where you’ll know you’re never alone<br />When your heart is grieving <br />Air is hard to breathe in <br />Let me show you a way to a place<br />Where you’ll know you’re never alone{% endraw %}
