@@ -1,0 +1,15 @@
+---
+title: "A Quarter Life Crisis Get Ready with Me"
+image: "https:\/\/i.ytimg.com\/vi\/xg0UaDQlQxw\/hqdefault.jpg"
+vid_id: "xg0UaDQlQxw"
+categories: "Howto-Style"
+tags: ["get ready with me","grwm","2021"]
+date: "2021-06-18T15:27:47+03:00"
+vid_date: "2021-06-13T23:13:34Z"
+duration: "PT45M14S"
+viewcount: "776"
+likeCount: "94"
+dislikeCount: "0"
+channel: "Lauren's Life"
+---
+{% raw %}This turned into a Maury episode REAL QUICK BUT THANK YOU TO CLAIRINS FOR GIFTING ME THE LIP COMFORT OIL THAT HELPED ME MAKE A WANNA BE SUMMER ~LOOK~ get yours here: <a rel="nofollow" target="blank" href="https://www.octoly.com/c/hhex6/r/hau9c">https://www.octoly.com/c/hhex6/r/hau9c</a><br /><br />// RESOURCES:<br />» Support a brother: <a rel="nofollow" target="blank" href="https://ko-fi.com/larrrran">https://ko-fi.com/larrrran</a><br />» Get $10 off your Prose order: <a rel="nofollow" target="blank" href="https://tinyurl.com/w53ddko">https://tinyurl.com/w53ddko</a><br />» Get 15% off NewAir home products with &quot;LAUREN'S_LIFE15OFF&quot; via this link: <a rel="nofollow" target="blank" href="https://glnk.io/9364/laurens-life">https://glnk.io/9364/laurens-life</a> <br />» Get $10 off your Wild One order for all you pet owners! <a rel="nofollow" target="blank" href="http://rwrd.io/j9z6poa">http://rwrd.io/j9z6poa</a><br />» Get 10% off your Custom Pillow <a rel="nofollow" target="blank" href="https://tinyurl.com/upphs25e">https://tinyurl.com/upphs25e</a><br /><br />-----------------<br /><br />// FIND ME:<br />» Instagram: @Larrrran <a rel="nofollow" target="blank" href="https://instagram.com/larrrran/">https://instagram.com/larrrran/</a><br />» Twitter: Larrrran_ <a rel="nofollow" target="blank" href="http://twitter.com/larrrran_">http://twitter.com/larrrran_</a><br />» Spotify: Larrrran <a rel="nofollow" target="blank" href="https://open.spotify.com/user/larrrran">https://open.spotify.com/user/larrrran</a><br />» Gaming Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCdvS...">https://www.youtube.com/channel/UCdvS...</a><br /><br />-----------------<br /><br />// WATCH MORE:<br />» Things to Do if You're Bored in Quarantine: <a rel="nofollow" target="blank" href="https://youtu.be/jZrLlJtT6LE">https://youtu.be/jZrLlJtT6LE</a><br />» Why I've Been Losing Weight Vlog: <a rel="nofollow" target="blank" href="https://youtu.be/yw6Zh4SfCTw">https://youtu.be/yw6Zh4SfCTw</a><br /><br />-----------------<br /><br />// VIDEO INFO:<br />» DSLR Camera Canon 6D<br />» Vlogging Camera Canon G7X Mark ii<br />» Edited with Premiere Pro<br />» Graphics in After Effects<br />» Music by HOAX - Western Medicine - <a rel="nofollow" target="blank" href="https://thmatc.co/?l=3B13FC49">https://thmatc.co/?l=3B13FC49</a><br />» Music by Dyalla - <a rel="nofollow" target="blank" href="https://youtu.be/0VLKOnKrL1c">https://youtu.be/0VLKOnKrL1c</a><br /><br />-----------------<br /><br />// FTC <br />»This is not a sponsored video but #Clarinsgiftedme{% endraw %}
