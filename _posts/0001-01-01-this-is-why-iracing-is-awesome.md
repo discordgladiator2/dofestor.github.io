@@ -1,0 +1,15 @@
+---
+title: "This Is Why iRacing Is AWESOME"
+image: "https:\/\/i.ytimg.com\/vi\/WzoQzbERFi4\/hqdefault.jpg"
+vid_id: "WzoQzbERFi4"
+categories: "Gaming"
+tags: ["iRacing","AWESOME"]
+date: "2021-06-19T06:14:57+03:00"
+vid_date: "2021-06-18T17:02:47Z"
+duration: "PT11M11S"
+viewcount: "5563"
+likeCount: "374"
+dislikeCount: "10"
+channel: "Jardier"
+---
+{% raw %}Racing in slow cars side by side car to car is just incredible awesome experience in iRacing! I love hosted races!<br /><br />➤You can tip me at <a rel="nofollow" target="blank" href="https://streamlabs.com/jardier">https://streamlabs.com/jardier</a><br />➤You can support my racing dream at <a rel="nofollow" target="blank" href="https://www.patreon.com/jardier">https://www.patreon.com/jardier</a><br /><br />➤My provisional Schedule <a rel="nofollow" target="blank" href="https://bit.ly/2yDnfem">https://bit.ly/2yDnfem</a><br /><br />➤WHERE TO FOLLOW:<br />Twitch <a rel="nofollow" target="blank" href="https://www.twitch.tv/jardier">https://www.twitch.tv/jardier</a><br />Twitter <a rel="nofollow" target="blank" href="https://twitter.com/JaroslavHonzik">https://twitter.com/JaroslavHonzik</a><br />My Discord Group <a rel="nofollow" target="blank" href="https://discord.gg/jardier">https://discord.gg/jardier</a><br />Facebook <a rel="nofollow" target="blank" href="https://www.facebook.com/jardiercz">https://www.facebook.com/jardiercz</a><br />Instagram <a rel="nofollow" target="blank" href="https://instagram.com/jardier/">https://instagram.com/jardier/</a><br />YAS HEAT <a rel="nofollow" target="blank" href="https://www.yasheat.com/">https://www.yasheat.com/</a><br /><br />➤GT OMEGA 5% discount on everything - <br />USA: <a rel="nofollow" target="blank" href="https://tinyurl.com/y6o86ltz">https://tinyurl.com/y6o86ltz</a><br />UK: <a rel="nofollow" target="blank" href="https://tinyurl.com/yyfp2wqb">https://tinyurl.com/yyfp2wqb</a><br />EU: <a rel="nofollow" target="blank" href="https://tinyurl.com/y2l8op6q">https://tinyurl.com/y2l8op6q</a><br />CA: <a rel="nofollow" target="blank" href="https://tinyurl.com/y4uvbqll">https://tinyurl.com/y4uvbqll</a><br />AUS: <a rel="nofollow" target="blank" href="https://tinyurl.com/yyqpmjwj">https://tinyurl.com/yyqpmjwj</a><br /><br />➤FANATEC Affiliate Jardier Link <a rel="nofollow" target="blank" href="https://www.fanatec.com/?utm_medium=FAP+Banner&amp;utm_source=jardier&amp;utm_campaign=General+Links&amp;a_aid=jardier">https://www.fanatec.com/?utm_medium=FAP+Banner&amp;utm_source=jardier&amp;utm_campaign=General+Links&amp;a_aid=jardier</a><br /><br />➤JARDIER MERCH - <a rel="nofollow" target="blank" href="https://teespring.com/stores/jardiers-merch-2020">https://teespring.com/stores/jardiers-merch-2020</a><br /><br />➤CHECK:<br />Our Fuel APP - <a rel="nofollow" target="blank" href="https://play.google.com/store/apps/details?id=com.joeblow.racefuelcalc">https://play.google.com/store/apps/details?id=com.joeblow.racefuelcalc</a><br /><br />#iracing #jardier #mazda<br />ACC ACR World Tour Opening Round - BATHURST<br />Crazy racing GT3<br />This Is Why iRacing Is AWESOME{% endraw %}
