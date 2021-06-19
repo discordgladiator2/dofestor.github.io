@@ -1,0 +1,15 @@
+---
+title: "Trying Culver's Drive-Thru Extremely Cheesy Pretzel Bacon Cheeseburger with Cheese Sauce • MUKBANG"
+image: "https:\/\/i.ytimg.com\/vi\/d480f_TZA84\/hqdefault.jpg"
+vid_id: "d480f_TZA84"
+categories: "Science-Technology"
+tags: ["nikocado","nikocado avocado","culvers"]
+date: "2021-06-19T22:13:18+03:00"
+vid_date: "2021-06-19T02:45:01Z"
+duration: "PT1H4M37S"
+viewcount: "69424"
+likeCount: "2878"
+dislikeCount: "608"
+channel: "More Nikocado"
+---
+{% raw %}Extremely Cheese Pretzel Bacon Cheeseburger from Culver's!!! with CHEESE SAUCE!!!<br />(new) PATREON: <a rel="nofollow" target="blank" href="https://patreon.com/NikocadoAvocado">https://patreon.com/NikocadoAvocado</a><br />(new) CAMEO: <a rel="nofollow" target="blank" href="https://cameo.com/nikocadoavocado">https://cameo.com/nikocadoavocado</a><br />Get a private video from me.<br /><br />MERCH: <a rel="nofollow" target="blank" href="https://teespring.com/stores/nikocadoavocado">https://teespring.com/stores/nikocadoavocado</a><br />TIKTOK: <a rel="nofollow" target="blank" href="https://www.tiktok.com/@realnikocadoavocado">https://www.tiktok.com/@realnikocadoavocado</a><br />INSTAGRAM: <a rel="nofollow" target="blank" href="https://www.instagram.com/nikocadoavocado_real">https://www.instagram.com/nikocadoavocado_real</a><br /><br />Executive Producers: Leslie Jeppesen &amp; Princess Abbie<br />Wanna Be My Producer? – <a rel="nofollow" target="blank" href="https://patreon.com/NikocadoAvocado">https://patreon.com/NikocadoAvocado</a> <br /><br />– FOLLOW ALL MY CHANNELS –<br />Nikocado 1: <a rel="nofollow" target="blank" href="https://youtube.com/watch?v=mKrEOtd9x-E">https://youtube.com/watch?v=mKrEOtd9x-E</a> <br />Nikocado 2: <a rel="nofollow" target="blank" href="https://youtube.com/watch?v=mIEpXwu31Us">https://youtube.com/watch?v=mIEpXwu31Us</a><br />Nikocado 3: <a rel="nofollow" target="blank" href="https://youtube.com/watch?v=ec65fZXcWv4">https://youtube.com/watch?v=ec65fZXcWv4</a><br />More Nikocado: <a rel="nofollow" target="blank" href="https://youtube.com/watch?v=aG0YPamrjMY">https://youtube.com/watch?v=aG0YPamrjMY</a><br />Noodle King: <a rel="nofollow" target="blank" href="https://youtube.com/watch?v=1r_yBgUzJPI">https://youtube.com/watch?v=1r_yBgUzJPI</a><br /><br />Business Inquiries: info@nikocadoavocado.com<br /><br />Disclaimer: For Entertainment Purposes Only–<br />The information provided on this video is for entertainment purposes only. Information on this YouTube channel should not be considered as a substitute for advice from a qualified dietitian or healthcare professional. Any statements made throughout this video regarding specific dietary or nutritional information are not to diagnose, treat, cure or prevent disease. Please consult with a physician or other healthcare professional regarding your specific needs.<br />————————<br />I'm at the Culver's drive thru and ordering extra cheesy cheeseburger! Onion rings and cheese curds, pretzel bites, and cheese sauce!{% endraw %}
