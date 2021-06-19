@@ -1,0 +1,15 @@
+---
+title: "Nessa Barrett's 10 Minute Makeup Routine for Fake Freckles | Allure"
+image: "https:\/\/i.ytimg.com\/vi\/SUbqwxcQXSE\/hqdefault.jpg"
+vid_id: "SUbqwxcQXSE"
+categories: "Entertainment"
+tags: ["10 min beauty routine","10 min makeup","10 min routine"]
+date: "2021-06-19T10:01:42+03:00"
+vid_date: "2021-06-18T16:00:08Z"
+duration: "PT10M31S"
+viewcount: "67664"
+likeCount: "7149"
+dislikeCount: "227"
+channel: "Allure"
+---
+{% raw %}Singer Nessa Barrett shows us how she pulls off a tan everyday look with her 10 minute beauty routine.  With a quick cameo from her boyfriend, Jaden Hossler, Nessa also demonstrates her methods for applying fake freckles and mastering a great nose contour.<br /><br /><br /><br />Nessa Barrett’s new single “Counting Crimes” is out June 25,  <a rel="nofollow" target="blank" href="https://Nessa.lnk.to/CountingCrimes">https://Nessa.lnk.to/CountingCrimes</a> <br /><br /><br /><br />Products Used:<br /><br />Chapstick Classic Lip Balm Original<br /><br /><a rel="nofollow" target="blank" href="https://goto.target.com/yRre5W">https://goto.target.com/yRre5W</a><br /><br />Forever Bloom Bio Mimic foundation<br /><br /><a rel="nofollow" target="blank" href="https://amzn.to/3pWa6DG">https://amzn.to/3pWa6DG</a><br /><br />Charlotte Tilbury Airbrush Matte Bronzer<br /><br /><a rel="nofollow" target="blank" href="https://shop-links.co/1743520883246945891">https://shop-links.co/1743520883246945891</a><br /><br />Milani Baked Blush in “Rose D’Oro”<br /><br /><a rel="nofollow" target="blank" href="https://shop-links.co/1743520975792590887">https://shop-links.co/1743520975792590887</a><br /><br />Becca Cosmetics Shimmering Skin Perfector pressed powder in “Champagne Pop”<br /><br /><a rel="nofollow" target="blank" href="https://shop-links.co/1743521049171271239">https://shop-links.co/1743521049171271239</a><br /><br />Too Faced Sweet Peach eyeshadow palette<br /><br /><a rel="nofollow" target="blank" href="https://shop-links.co/1743521113056867458">https://shop-links.co/1743521113056867458</a><br /><br />Spoolie brush<br /><br />Nyx Professional Makeup Slide-on lip pencil in “Alluring”<br /><br /><a rel="nofollow" target="blank" href="https://amzn.to/3grWuwJ">https://amzn.to/3grWuwJ</a><br /><br />Too Faced Lip Injection Extreme lip plumper<br /><br /><a rel="nofollow" target="blank" href="https://shop-links.co/1743521247082003590">https://shop-links.co/1743521247082003590</a><br /><br />Anastasia Beverly Hills Dewy Setting Spray<br /><br /><a rel="nofollow" target="blank" href="https://shop-links.co/1743521294947998561">https://shop-links.co/1743521294947998561</a><br /><br />Still haven’t subscribed to Allure on YouTube? ►► <a rel="nofollow" target="blank" href="http://bit.ly/AllureYouTubeSub">http://bit.ly/AllureYouTubeSub</a><br /><br /><br /><br />ABOUT ALLURE<br /><br />The best daily makeup tips, skin-care advice, hair tutorials, product reviews, and videos from beauty experts. <br /><br /><br /><br />Nessa Barrett's 10 Minute Makeup Routine for Fake Freckles | Allure{% endraw %}
