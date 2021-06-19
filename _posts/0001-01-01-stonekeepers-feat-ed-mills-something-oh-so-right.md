@@ -1,0 +1,15 @@
+---
+title: "Stonekeepers feat. Ed Mills - Something Oh so Right"
+image: "https:\/\/i.ytimg.com\/vi\/Yw3eIrv3H58\/hqdefault.jpg"
+vid_id: "Yw3eIrv3H58"
+categories: "Music"
+tags: ["Epidemic Sound","Coffehouse pop","Folk inspire"]
+date: "2021-06-19T12:04:21+03:00"
+vid_date: "2019-09-06T08:46:17Z"
+duration: "PT3M53S"
+viewcount: "54025"
+likeCount: "854"
+dislikeCount: "12"
+channel: "Epidemic Acoustic"
+---
+{% raw %}Get to know our artists and discover new music by signing up to our newsletter: <a rel="nofollow" target="blank" href="http://link.epidemicsound.com/AcousticNews">http://link.epidemicsound.com/AcousticNews</a><br />Subscribe to Epidemic Unwind: <a rel="nofollow" target="blank" href="https://goo.gl/eoJejh">https://goo.gl/eoJejh</a><br /><br />Instrumental version: <a rel="nofollow" target="blank" href="https://youtu.be/NyoAuOcwvVI">https://youtu.be/NyoAuOcwvVI</a><br /><br />🎶 Use this song in your videos: <a rel="nofollow" target="blank" href="https://www.epidemicsound.com/creator-subscription/?utm_source=YT_ES&amp;utm_medium=organic&amp;_us=YT_ES&amp;_usx=VideoDesc&amp;utm_campaign=VideoDescEpidemicUnwind">https://www.epidemicsound.com/creator-subscription/?utm_source=YT_ES&amp;utm_medium=organic&amp;_us=YT_ES&amp;_usx=VideoDesc&amp;utm_campaign=VideoDescEpidemicUnwind</a><br /><br />Follow Epidemic Sound:<br />Spotify: <a rel="nofollow" target="blank" href="https://open.spotify.com/user/epidemicsound">https://open.spotify.com/user/epidemicsound</a><br />Apple Music: <a rel="nofollow" target="blank" href="https://itunes.apple.com/profile/epidemicsound">https://itunes.apple.com/profile/epidemicsound</a><br />SoundCloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/epidemicsound">https://soundcloud.com/epidemicsound</a><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/epidemicsound">https://www.instagram.com/epidemicsound</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/EpidemicSound">https://www.facebook.com/EpidemicSound</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/epidemicsound">https://twitter.com/epidemicsound</a><br /><br />Playlists<br />Acoustic Coffeehouse: <a rel="nofollow" target="blank" href="http://link.epidemicsound.com/Acoustic_Coffeehouse_Playlist">http://link.epidemicsound.com/Acoustic_Coffeehouse_Playlist</a><br />Acoustic Indie Focus: <a rel="nofollow" target="blank" href="http://link.epidemicsound.com/Acoustic_Indie_Focus_Playlist">http://link.epidemicsound.com/Acoustic_Indie_Focus_Playlist</a><br />Spring In Your Step: <a rel="nofollow" target="blank" href="http://link.epidemicsound.com/Spring_In_Your_Step_Playlist">http://link.epidemicsound.com/Spring_In_Your_Step_Playlist</a><br /><br />#epidemicunwind #ESmusic<br /><br />🎶Download the free track of the month: <a rel="nofollow" target="blank" href="http://link.epidemicsound.com/freetrack-acoustic">http://link.epidemicsound.com/freetrack-acoustic</a>{% endraw %}
