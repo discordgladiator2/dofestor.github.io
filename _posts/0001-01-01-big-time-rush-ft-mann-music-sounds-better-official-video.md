@@ -1,0 +1,15 @@
+---
+title: "Big Time Rush ft. Mann - Music Sounds Better (Official Video)"
+image: "https:\/\/i.ytimg.com\/vi\/hRXlyoVlWTs\/hqdefault.jpg"
+vid_id: "hRXlyoVlWTs"
+categories: "Music"
+tags: ["Music Sounds Better featuring Mann","Big Time Rush lyrics","Big Time Rush official channel"]
+date: "2021-06-19T22:55:00+03:00"
+vid_date: "2011-11-13T01:35:00Z"
+duration: "PT3M10S"
+viewcount: "54502408"
+likeCount: "383341"
+dislikeCount: "10362"
+channel: "BigTimeRushVevo"
+---
+{% raw %}Big Time Rush's official music video for 'Music Sounds Better'. Click to listen to Big Time Rush on Spotify: <a rel="nofollow" target="blank" href="http://smarturl.it/BTRSpotify?IQid=BTRMSB">http://smarturl.it/BTRSpotify?IQid=BTRMSB</a><br /><br />As featured on Elevate. Click to buy the track or album via iTunes: <a rel="nofollow" target="blank" href="http://smarturl.it/BTRElevateiTunes?IQid=BTRMSB">http://smarturl.it/BTRElevateiTunes?IQid=BTRMSB</a><br />Google Play: <a rel="nofollow" target="blank" href="http://smarturl.it/BTRMSBplay?IQid=BTRMSB">http://smarturl.it/BTRMSBplay?IQid=BTRMSB</a><br />Amazon: <a rel="nofollow" target="blank" href="http://smarturl.it/BTRElevateAmz?IQid=BTRMSB">http://smarturl.it/BTRElevateAmz?IQid=BTRMSB</a><br /><br />More from Big Time Rush<br />Any Kind Of Guy: <a rel="nofollow" target="blank" href="https://youtu.be/koUpqQRkJis">https://youtu.be/koUpqQRkJis</a><br />24/seven: <a rel="nofollow" target="blank" href="https://youtu.be/61XJ4k1pn1k">https://youtu.be/61XJ4k1pn1k</a><br />Windows Down: <a rel="nofollow" target="blank" href="https://youtu.be/Z_Al0GXbCm8">https://youtu.be/Z_Al0GXbCm8</a><br /><br />Follow Big Time Rush<br />Website: <a rel="nofollow" target="blank" href="http://www.btrband.com/">http://www.btrband.com/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/bigtimerush">https://www.facebook.com/bigtimerush</a><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/bigtimerush">https://twitter.com/bigtimerush</a><br /><br />Subscribe to Big Time Rush on YouTube: <a rel="nofollow" target="blank" href="http://smarturl.it/BigTimeRushSub?IQid=BTRMSB">http://smarturl.it/BigTimeRushSub?IQid=BTRMSB</a><br /><br />More great Ultimate Hits of the Noughties videos here: <a rel="nofollow" target="blank" href="http://smarturl.it/Ultimate00?IQid=BTRMSB">http://smarturl.it/Ultimate00?IQid=BTRMSB</a><br /><br />---------<br /><br />Lyrics:<br /><br />I try to write this down<br />The words just don't come out<br />It's hard to say how you feel<br />Been down the longest road<br />Said yes when I meant no<br />I lost control of the wheel<br />Cause you know that<br />Things get so bad,<br />You've got my back<br />Make me wanna sing,<br />And girl I'm singing about you<br />No sweeter sound<br />Than what I've found<br />No perfect love<br />Could be more perfect than us<br /><br />Ooh baby it feels like, it feels like<br />The music sounds better with you baby<br />It feels right, it feels right<br />Everything's better with you<br /><br />#BigTimeRush #MusicSoundsBetter #Vevo{% endraw %}
