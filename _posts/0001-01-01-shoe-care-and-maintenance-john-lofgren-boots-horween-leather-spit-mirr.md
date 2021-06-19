@@ -1,0 +1,15 @@
+---
+title: "Shoe Care and Maintenance: John Lofgren Boots | Horween Leather | Spit\/Mirror Shine | ASMR"
+image: "https:\/\/i.ytimg.com\/vi\/o0htHyZ8grw\/hqdefault.jpg"
+vid_id: "o0htHyZ8grw"
+categories: "Education"
+tags: ["horween leather","John lofgren boots","shoe care"]
+date: "2021-06-19T08:22:08+03:00"
+vid_date: "2020-02-23T13:00:08Z"
+duration: "PT19M15S"
+viewcount: "6103"
+likeCount: "200"
+dislikeCount: "5"
+channel: "Georgio's Bottega"
+---
+{% raw %}Georgio's Bottega | Shoe Care and Maintenance: John Lofgren Boots | Horween Leather | Spit Shine | ASMR<br /><br />This is one of our thorough shoe shine routines using the Saphir Medaille d’Or products that you can do at home with a spit shine tutorial or mirror shine at the end.<br />Thanks for Watching,<br />Giorgio <br /><br />STEPS:<br />- Wipe Down Shoes<br />- Clean the shoes<br />- Condition the shoes<br />- Apply Saphir shoe cream <br />- Apply multiple coats of Saphir Mirror Gloss for a spit shine finish<br /><br />All products can be bought at our brick n mortar or our our website:<br />-Saphir Medaille D'or Cotton Chamois:<br /><a rel="nofollow" target="blank" href="https://www.shopgeorgiosbottega.com/product/saphir-medaille-d-or-cotton-chamois-/480?cs=true">https://www.shopgeorgiosbottega.com/product/saphir-medaille-d-or-cotton-chamois-/480?cs=true</a><br /><br />-Saphir - Saddle Soap: <br /><a rel="nofollow" target="blank" href="https://www.shopgeorgiosbottega.com/product/saphirsaddlesoap/298?cs=true">https://www.shopgeorgiosbottega.com/product/saphirsaddlesoap/298?cs=true</a><br /><br />-Saphir Oiled Leather:<br /><a rel="nofollow" target="blank" href="https://www.shopgeorgiosbottega.com/product/saphir-oiled-leather-125ml-great-for-horween-and-pull-up-leathers-/456?cs=true">https://www.shopgeorgiosbottega.com/product/saphir-oiled-leather-125ml-great-for-horween-and-pull-up-leathers-/456?cs=true</a><br /><br />-Saphir Medaille D'or Renovateur:<br /><a rel="nofollow" target="blank" href="https://www.shopgeorgiosbottega.com/product/saphir-medaille-d-or-renovateur-75ml/253?cs=true">https://www.shopgeorgiosbottega.com/product/saphir-medaille-d-or-renovateur-75ml/253?cs=true</a><br /><br />-Saphir Medaille D'or Cream 1925:<br /><a rel="nofollow" target="blank" href="https://www.shopgeorgiosbottega.com/product/saphir-medaille-d-or-cream-1925/256?cs=true">https://www.shopgeorgiosbottega.com/product/saphir-medaille-d-or-cream-1925/256?cs=true</a><br /><br />-Saphir Medaille D'or Mirror Gloss:<br /><a rel="nofollow" target="blank" href="https://www.shopgeorgiosbottega.com/product/saphir-medaille-d-or-mirror-gloss-75ml/280?cs=true">https://www.shopgeorgiosbottega.com/product/saphir-medaille-d-or-mirror-gloss-75ml/280?cs=true</a><br /><br />John Lofgren is one of our favorite boots out there in todays market. get a pair today:<br /><a rel="nofollow" target="blank" href="https://www.shopgeorgiosbottega.com/product/pre-order-john-lofgren-combat-boots-timber-cxl/408?cs=true">https://www.shopgeorgiosbottega.com/product/pre-order-john-lofgren-combat-boots-timber-cxl/408?cs=true</a>{% endraw %}
