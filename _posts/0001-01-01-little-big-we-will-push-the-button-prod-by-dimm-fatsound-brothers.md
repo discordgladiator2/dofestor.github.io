@@ -1,0 +1,15 @@
+---
+title: "LITTLE BIG - We will push the button (prod. by Dimm (Fatsound brothers)"
+image: "https:\/\/i.ytimg.com\/vi\/HoRyrCjOkdI\/hqdefault.jpg"
+vid_id: "HoRyrCjOkdI"
+categories: "Music"
+tags: ["Little","Big","north"]
+date: "2021-06-19T08:27:16+03:00"
+vid_date: "2013-04-09T09:18:55Z"
+duration: "PT1M50S"
+viewcount: "8764135"
+likeCount: "97345"
+dislikeCount: "6992"
+channel: "Little Big"
+---
+{% raw %}New album &quot;FUNERAL RAVE&quot; available on iTunes now:<a rel="nofollow" target="blank" href="https://itun.es/ru/kxcS_">https://itun.es/ru/kxcS_</a><br /><br />Upcoming concerts in Europe:<br /><br /><a rel="nofollow" target="blank" href="http://bit.ly/2krdY2b">http://bit.ly/2krdY2b</a><br /><br />04.10 Gdansk (PL)<br />05.10 Poznań (PL)<br />07.10 Brno (CZ)<br />08.10 Krakow (PL)<br />10.10 Ostrava (CZ)<br />11.10 Vienna (AT)<br />12.10 Debrecen (HU)<br />14.10 Amsterdam (NL)<br />15.10 Nijmegen (NL)<br />17.10 Cologne (DE)<br />18.10 Toulouse (FR)<br />19.10 Villeurbanne, Lyon (FR)<br />21.10 Lille (FR)<br />22.10 Paris (FR)<br />23.10 Brussels (BE)<br /><br />⭐ POP ON THE TOP TOUR ⭐<br /><br /><a rel="nofollow" target="blank" href="https://littlebig.ru">https://littlebig.ru</a>  <br /><br />20.12 МОСКВА<br />23.02 САНКТ-ПЕТЕРБУРГ<br /><br />25.10 МИНСК<br />26.10 КАЛИНИНГРАД<br />29.10 ОРЁЛ<br />30.10 КУРСК<br />31.10 БЕЛГОРОД<br />01.11 ХАРЬКОВ<br />07.11 ЮЖНО-САХАЛИНСК<br />08.11 ВЛАДИВОСТОК<br />10.11 ЯКУТСК<br />12.11 ИРКУТСК<br />14.11 КРАСНОЯРСК<br />15.11 НОРИЛЬСК<br />16.11 НОВОСИБИРСК<br />18.11 КЕМЕРОВО<br />19.11 ТОМСК<br />20.11 СУРГУТ<br />21.11 ТЮМЕНЬ<br />23.11 ОМСК<br />24.11 ЕКАТЕРИНБУРГ<br />27.11 КИРОВ<br />28.11 ПЕРМЬ<br />30.11 ЧЕЛЯБИНСК<br />01.12 УФА<br />02.12 ИЖЕВСК<br />04.12 ТОЛЬЯТТИ<br />05.12 САМАРА<br />06.12 КАЗАНЬ<br />08.12 НИЖНИЙ НОВГОРОД<br />09.12 УЛЬЯНОВСК<br />10.12 САРАТОВ<br />12.12 АСТРАХАНЬ<br />13.12 ВОЛГОГРАД<br />15.12 РОСТОВ-НА-ДОНУ<br />16.12 КРАСНОДАР<br />17.12 ВОРОНЕЖ<br />28.02 БРЯНСК<br /><br />Booking (Ru, USA):  littlebig.booking@gmail.com<br /><br />Booking (Europe): +33 608 815 807 Fabristi<br /><a rel="nofollow" target="blank" href="http://www.base-productions.com">http://www.base-productions.com</a><br /><br />LITTLE BIG:<br />itunes: <a rel="nofollow" target="blank" href="https://itunes.apple.com/ru/album/give-me-your-money-feat.-tommy/id1038913107">https://itunes.apple.com/ru/album/give-me-your-money-feat.-tommy/id1038913107</a><br />facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/littlebigbandofficial">https://www.facebook.com/littlebigbandofficial</a><br />soundcloud: <a rel="nofollow" target="blank" href="https://soundcloud.com/littlebigrussia">https://soundcloud.com/littlebigrussia</a><br />vk: <a rel="nofollow" target="blank" href="http://vk.com/littlebigband">http://vk.com/littlebigband</a><br />twitter: <a rel="nofollow" target="blank" href="https://twitter.com/LITTLEBIG_BAND">https://twitter.com/LITTLEBIG_BAND</a><br />website: <a rel="nofollow" target="blank" href="http://thelittlebig.com">http://thelittlebig.com</a>{% endraw %}
