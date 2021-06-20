@@ -1,0 +1,15 @@
+---
+title: "DID CRAYOLA JUST MAKE THE BEST SKIN TONE SET?! | Markers, Pencils, and Crayons!"
+image: "https:\/\/i.ytimg.com\/vi\/0gCNcu_5znI\/hqdefault.jpg"
+vid_id: "0gCNcu_5znI"
+categories: "Entertainment"
+tags: ["DrawingWiffWaffles","drawing","wiff"]
+date: "2021-06-20T04:10:19+03:00"
+vid_date: "2021-06-19T13:30:00Z"
+duration: "PT23M53S"
+viewcount: "95757"
+likeCount: "10963"
+dislikeCount: "27"
+channel: "DrawingWiffWaffles"
+---
+{% raw %}Thanks to the Crazy Banana Peel, we have a video this week. ;) But seriously, I was quite impressed by these sets. I hope other brands take note and Crayola considers expanding the line even further to include other mediums. <br /><br />Crayola Colors of the World: <a rel="nofollow" target="blank" href="https://amzn.to/3gIMNZU">https://amzn.to/3gIMNZU</a><br /><br />► FAVORITE SUPPLIES:<br />illo Sketchbook 8x8: <a rel="nofollow" target="blank" href="https://amzn.to/2Q8mCAm">https://amzn.to/2Q8mCAm</a><br />Copic Sketch Markers: <a rel="nofollow" target="blank" href="https://amzn.to/2TuJklp">https://amzn.to/2TuJklp</a><br />Ohuhu Brushmarkers: <a rel="nofollow" target="blank" href="https://amzn.to/2KPN67H">https://amzn.to/2KPN67H</a> <br />Ohuhu Pastel: <a rel="nofollow" target="blank" href="https://amzn.to/38uHzxX">https://amzn.to/38uHzxX</a> <br />Ohuhu Fineliners: <a rel="nofollow" target="blank" href="https://amzn.to/2VqDsMa">https://amzn.to/2VqDsMa</a><br />Sakura Gelly Roll - 10 Bold: <a rel="nofollow" target="blank" href="https://amzn.to/354XMbH">https://amzn.to/354XMbH</a><br />White Posca Pen: <a rel="nofollow" target="blank" href="https://amzn.to/2FtHHBp">https://amzn.to/2FtHHBp</a><br />Col-Erase Pencils: <a rel="nofollow" target="blank" href="https://amzn.to/2UlTsNB">https://amzn.to/2UlTsNB</a><br /><br />♦ ♦ SOCIAL MEDIA LINKS ♦ ♦ <br /><a rel="nofollow" target="blank" href="http://drawingwiffwaffles.com/">http://drawingwiffwaffles.com/</a><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/DrawingWiffWaffles">https://www.facebook.com/DrawingWiffWaffles</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/DrawWiffWaffles">https://twitter.com/DrawWiffWaffles</a><br />Instagram: <a rel="nofollow" target="blank" href="http://instagram.com/drawingwiffwaffles">http://instagram.com/drawingwiffwaffles</a><br /><br />♥ some links are affiliate, thanks for supporting me at no extra cost to you! ♥<br />Thank you Becca, for the help with editing on this video!<br />Thanks to Amanda for helping me out with Captions! ♥ [<a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCjF_jBdRCbHqKiJgmBKxdog?sub_confirmation=1]">https://www.youtube.com/channel/UCjF_jBdRCbHqKiJgmBKxdog?sub_confirmation=1]</a><br /><br />🕐TIMESTAMPS: <br />00:00 How do you spell Banana Peel?<br />00:47 Introduction<br />01:41 The Crayons!<br />04:49 The Markers!<br />06:02 The Colored Pencils!<br />07:41 Trying to Draw Myself<br />12:15 Experimenting with the other Hues<br />21:29 My Opinions and Conclusions{% endraw %}
