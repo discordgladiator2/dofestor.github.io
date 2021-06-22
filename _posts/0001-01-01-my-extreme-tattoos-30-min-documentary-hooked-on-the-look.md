@@ -1,0 +1,15 @@
+---
+title: "My Extreme Tattoos (30 Min Documentary) | HOOKED ON THE LOOK"
+image: "https:\/\/i.ytimg.com\/vi\/pIYI2O3q86U\/hqdefault.jpg"
+vid_id: "pIYI2O3q86U"
+categories: "News-Politics"
+tags: ["amazing news","amazing stories","amazing story"]
+date: "2021-06-22T06:42:15+03:00"
+vid_date: "2019-07-05T23:00:08Z"
+duration: "PT28M39S"
+viewcount: "3398738"
+likeCount: "29816"
+dislikeCount: "2792"
+channel: "truly"
+---
+{% raw %}SUBSCRIBE to Barcroft TV: <a rel="nofollow" target="blank" href="http://bit.ly/Oc61Hj">http://bit.ly/Oc61Hj</a><br /><br />Some people love tattoos – and some people REALLY love tattoos. In this Hooked On The Look special we meet four people who have taken their love of being inked to the extreme. Sylvain Helaine has covered his entire body and face in tattoos despite being a primary school teacher, while 36-year-old Brazilian, Marcelo De Souza Ribeiro has over 1000 tattoos, a split tongue and fanged teeth. 22-year-old Ethan Bramble, from Melbourne in Australia has undergone more than 40 body modification procedures in his quest to become the world’s most modified youth, while 33-year-old hairdresser Richie The Barber thinks he has the funniest tattoos of all – he’s tattooed his entire face to look like a permanent clown. If you love tattoos you’ll find this ink-spirational!<br /><br />Click here to follow your favourite Barcroft shows on Instagram! <br />Barcroft TV - <a rel="nofollow" target="blank" href="https://www.instagram.com/barcroft_tv/">https://www.instagram.com/barcroft_tv/</a><br />Born Different - <a rel="nofollow" target="blank" href="https://www.instagram.com/borndifferentshow/">https://www.instagram.com/borndifferentshow/</a><br />Shake My Beauty - <a rel="nofollow" target="blank" href="https://www.instagram.com/shakemybeauty/">https://www.instagram.com/shakemybeauty/</a><br />Hooked On The Look - <a rel="nofollow" target="blank" href="https://www.instagram.com/hookedonthelookshow/">https://www.instagram.com/hookedonthelookshow/</a><br />Beast Buddies - <a rel="nofollow" target="blank" href="https://www.instagram.com/beastbuddiesshow/">https://www.instagram.com/beastbuddiesshow/</a><br />Ridiculous Rides - <a rel="nofollow" target="blank" href="https://www.instagram.com/ridiculousridesshow/">https://www.instagram.com/ridiculousridesshow/</a><br />Snapped In The Wild - <a rel="nofollow" target="blank" href="https://www.instagram.com/snappedinthewild/">https://www.instagram.com/snappedinthewild/</a><br />Dog Dynasty - <a rel="nofollow" target="blank" href="https://www.instagram.com/dogdynastyshow/">https://www.instagram.com/dogdynastyshow/</a><br /><br />For more amazing content, click here!<br />Barcroft Animals: <a rel="nofollow" target="blank" href="https://www.youtube.com/barcroftanimals/featured">https://www.youtube.com/barcroftanimals/featured</a><br />Barcroft Cars: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/BarcroftCars/featured">https://www.youtube.com/user/BarcroftCars/featured</a>{% endraw %}
