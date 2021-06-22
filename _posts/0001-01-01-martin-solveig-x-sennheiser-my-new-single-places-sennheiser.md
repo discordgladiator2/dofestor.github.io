@@ -1,0 +1,15 @@
+---
+title: "Martin Solveig x Sennheiser – My New Single: Places | Sennheiser"
+image: "https:\/\/i.ytimg.com\/vi\/51M9K2XjvT0\/hqdefault.jpg"
+vid_id: "51M9K2XjvT0"
+categories: "Music"
+tags: ["sennheiser","sennheiser audio","sennheiser headphone"]
+date: "2021-06-22T03:06:29+03:00"
+vid_date: "2016-11-22T11:47:12Z"
+duration: "PT1M26S"
+viewcount: "294160"
+likeCount: "182"
+dislikeCount: "82"
+channel: "Sennheiser"
+---
+{% raw %}What is the source of inspiration for a music producer? For Martin Solveig it can be everything surrounding him. In this collaboration with Sennheiser, Martin Solveig gives insights into the creative process of his new single &quot;Places&quot; featuring Norwegian singer Ina Wroldsen. For more information, visit <a rel="nofollow" target="blank" href="http://sennheiser.com/">http://sennheiser.com/</a><br /><br />Subscribe to our YouTube channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/sennheiserofficial">https://www.youtube.com/user/sennheiserofficial</a><br /><br />Or follow Sennheiser on Facebook, Twitter &amp; Instagram:<br /><a rel="nofollow" target="blank" href="https://www.facebook.com/Sennheiser">https://www.facebook.com/Sennheiser</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/sennheiserpr">https://twitter.com/sennheiserpr</a><br /><a rel="nofollow" target="blank" href="https://www.instagram.com/sennheiser/">https://www.instagram.com/sennheiser/</a><br /><br />Discover the future of audio and see more Sennheiser videos here: <br />What's Your MOMENTUM? <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=bccuqpNWBWM&amp;list=PLPv-clLIf8-rQwLmuLcAluy7QFQt8ze9W">https://www.youtube.com/watch?v=bccuqpNWBWM&amp;list=PLPv-clLIf8-rQwLmuLcAluy7QFQt8ze9W</a><br />The Future of Audio <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=OU5ROEBitZ4&amp;list=PLPv-clLIf8-qIP51Vy139MJ4GmMynLLDr">https://www.youtube.com/watch?v=OU5ROEBitZ4&amp;list=PLPv-clLIf8-qIP51Vy139MJ4GmMynLLDr</a><br />Headphones &amp; Sound Equipment <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=gcHE3wnepXA&amp;list=PLPv-clLIf8-puk6ZhZkWTVGTVPJSyEjXY">https://www.youtube.com/watch?v=gcHE3wnepXA&amp;list=PLPv-clLIf8-puk6ZhZkWTVGTVPJSyEjXY</a><br />Microphones &amp; Recording <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=Tci999960qc&amp;list=PLPv-clLIf8-ozunBDKSmhdqzyjbE1oMnB">https://www.youtube.com/watch?v=Tci999960qc&amp;list=PLPv-clLIf8-ozunBDKSmhdqzyjbE1oMnB</a><br /><br />Sennheiser – Shape the future of audio!<br /><br />Sennheiser’s mission is to develop era-defining audio solutions. Be it headphones, microphones or integrated sound systems – with German engineering, decades of experience, and innovative science Sennheiser creates unsurpassed audio experiences that push the boundaries of today's technologies.<br /><br />Follow Sennheiser’s vision and discover audio solutions that challenge the status quo whilst offering profound new ways of experiencing integrated sound systems as well as pioneering headphones, microphones or headsets!{% endraw %}
