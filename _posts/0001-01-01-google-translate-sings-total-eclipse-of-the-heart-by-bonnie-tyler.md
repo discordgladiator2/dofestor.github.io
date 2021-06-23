@@ -1,0 +1,15 @@
+---
+title: "Google Translate Sings: \"Total Eclipse of the Heart\" by Bonnie Tyler"
+image: "https:\/\/i.ytimg.com\/vi\/3l3O2ncmkjA\/hqdefault.jpg"
+vid_id: "3l3O2ncmkjA"
+categories: "Film-Animation"
+tags: ["Google translate","Google Translate Sings","parody"]
+date: "2021-06-23T10:13:38+03:00"
+vid_date: "2017-09-07T20:32:32Z"
+duration: "PT5M59S"
+viewcount: "1038901"
+likeCount: "32230"
+dislikeCount: "211"
+channel: "Twisted Translations"
+---
+{% raw %}CHECK OUT MY MUSIC CHANNEL: <a rel="nofollow" target="blank" href="https://bit.ly/2GsRyrq">https://bit.ly/2GsRyrq</a><br />SUBSCRIBE: <a rel="nofollow" target="blank" href="http://bit.ly/sub2Malinda">http://bit.ly/sub2Malinda</a><br />SUPPORT: <a rel="nofollow" target="blank" href="http://bit.ly/MKRsupport">http://bit.ly/MKRsupport</a><br />MERCH: <a rel="nofollow" target="blank" href="https://shopmalinda.com">https://shopmalinda.com</a><br /><br />Total Eclipse was a song I sang in my a cappella group.  Of course I adore Bonnie Tyler.  Hope you enjoyed it!<br /><br />Follow me on:<br />Twitter @missmalindakat <a rel="nofollow" target="blank" href="https://twitter.com/missmalindakat">https://twitter.com/missmalindakat</a><br />Facebook <a rel="nofollow" target="blank" href="https://www.facebook.com/malindakathleenreese">https://www.facebook.com/malindakathleenreese</a><br />Instagram @missmalindakat <a rel="nofollow" target="blank" href="http://instagram.com/missmalindakat">http://instagram.com/missmalindakat</a><br /><br />For the first time in my life I had to reupload a video and correct the errors I made in the titles.  It was bothering me way too much. xx<br /><br />For autographs and snail mail:<br />3430 Connecticut Ave NW PO Box 11855<br />Washington DC 20008<br /><br />**EQUIPMENT**<br />(all links are affiliate links, so if you buy from here you support me too!)<br /><br />AUDIO<br />For singing: <a rel="nofollow" target="blank" href="http://amzn.to/2wwYXRo">http://amzn.to/2wwYXRo</a><br />For vlogging: <a rel="nofollow" target="blank" href="http://amzn.to/2wyQfSE">http://amzn.to/2wyQfSE</a><br />A great start mic: <a rel="nofollow" target="blank" href="http://amzn.to/2xhkScb">http://amzn.to/2xhkScb</a><br />Interface: <a rel="nofollow" target="blank" href="http://amzn.to/2fAxFyM">http://amzn.to/2fAxFyM</a><br /><br />VIDEO<br />Camera: <a rel="nofollow" target="blank" href="http://amzn.to/2hi08JS">http://amzn.to/2hi08JS</a><br />Lens: <a rel="nofollow" target="blank" href="http://amzn.to/2fABZ14">http://amzn.to/2fABZ14</a><br />Vlog camera: <a rel="nofollow" target="blank" href="http://amzn.to/2xnN4vT">http://amzn.to/2xnN4vT</a><br /><br />I use Logic and Final Cut Pro to edit audio and video respectively :)<br /><br />Mix by Jeremy Katzenstein: <a rel="nofollow" target="blank" href="http://applepickerrecords.com">http://applepickerrecords.com</a><br />Track by Cristian Villagra: <a rel="nofollow" target="blank" href="http://bit.ly/2oPsxJ8">http://bit.ly/2oPsxJ8</a><br />Check out his YouTube channel!{% endraw %}
