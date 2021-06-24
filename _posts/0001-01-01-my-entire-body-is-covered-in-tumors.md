@@ -1,0 +1,15 @@
+---
+title: "My Entire Body Is Covered in Tumors"
+image: "https:\/\/i.ytimg.com\/vi\/yC1jmccXr-o\/hqdefault.jpg"
+vid_id: "yC1jmccXr-o"
+categories: "Entertainment"
+tags: ["dr. travis","tumor","the doctors cbs"]
+date: "2021-06-24T17:09:39+03:00"
+vid_date: "2016-11-22T02:09:07Z"
+duration: "PT4M23S"
+viewcount: "1388717"
+likeCount: "13059"
+dislikeCount: "350"
+channel: "The Doctors"
+---
+{% raw %}Libby was born with a rare genetic disorder called neurofibromatosis that has caused tumors to pop up all over her entire body.<br /><br />Subscribe to The Doctors: <a rel="nofollow" target="blank" href="http://bit.ly/SubscribeTheDrs">http://bit.ly/SubscribeTheDrs</a><br />LIKE us on Facebook: <a rel="nofollow" target="blank" href="http://bit.ly/FacebookTheDoctors">http://bit.ly/FacebookTheDoctors</a><br />Follow us on Twitter: <a rel="nofollow" target="blank" href="http://bit.ly/TheDrsTwitter">http://bit.ly/TheDrsTwitter</a><br />Follow us on Pinterest: <a rel="nofollow" target="blank" href="http://bit.ly/PinterestTheDrs">http://bit.ly/PinterestTheDrs</a><br /><br />About The Doctors:<br /><br />The Doctors is an Emmy award-winning daytime talk show hosted by ER physician Dr. Travis Stork, plastic surgeon Dr. Andrew Ordon, OB-GYN Dr. Jennifer Ashton, urologist Dr. Jennifer Berman and family medicine physician and sexologist Dr. Rachael Ross.<br /><br />The Doctors helps you understand the latest health headlines, such as the ice bucket challenge for ALS and the Ebola outbreak; delivers exclusive interviews with celebrities dealing with health issues, such as Teen Mom star Farrah Abraham, reality stars Honey Boo Boo and Mama June and activist Chaz Bono; brings you debates about health and safety claims from agricultural company Monsanto and celebrities such as Jenny McCarthy; and shows you the latest gross viral videos and explains how you can avoid an emergency situation. The Doctors also features the News in 2:00 digest of the latest celebrity health news and The Doctors’ Prescription for simple steps to get active, combat stress, eat better and live healthier. <br /><br />Now in its eighth season, The Doctors celebrity guests have included Academy Award Winners Sally Field, Barbra Streisand, Jane Fonda, Marcia Gay Harden, Kathy Bates and Marisa Tomei; reality stars from Teen Mom and The Real Housewives, as well as Kris Jenner, Caitlyn Jenner, Melissa Rivers, Sharon Osbourne, Tim Gunn and Amber Rose; actors Jessica Alba, Christina Applegate, Julie Bowen, Patricia Heaton, Chevy Chase, Kristin Davis, Lou Ferrigno, Harrison Ford, Grace Gealey, Cedric the Entertainer, Valerie Harper, Debra Messing, Chris O’Donnell, Betty White, Linda Gray, Fran Drescher, Emmy Rossum, Roseanne Barr, Valerie Bertinelli, Suzanne Somers; athletes Magic Johnson, Apolo Ohno and Danica Patrick; musicians Tim McGraw, Justin Bieber, Clint Black, LL Cool J,  Nick Carter, Kristin Chenoweth, Paula Abdul, Gloria Gaynor, La Toya Jackson, Barry Manilow, Bret Michaels, Gene Simmons and Jordin Sparks; and celebrity chefs Wolfgang Puck, Guy Fieri and Curtis Stone.{% endraw %}
