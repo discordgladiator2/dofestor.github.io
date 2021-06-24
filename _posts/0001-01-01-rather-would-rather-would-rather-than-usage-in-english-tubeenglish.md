@@ -1,0 +1,15 @@
+---
+title: "Rather, would rather, would rather than usage in English #TubeEnglish"
+image: "https:\/\/i.ytimg.com\/vi\/u-4ZQC-tZH8\/hqdefault.jpg"
+vid_id: "u-4ZQC-tZH8"
+categories: "Education"
+tags: ["DSC","SSC CGL","VRO"]
+date: "2021-06-24T08:46:33+03:00"
+vid_date: "2021-05-20T08:13:52Z"
+duration: "PT20M59S"
+viewcount: "29493"
+likeCount: "1584"
+dislikeCount: "41"
+channel: "TUBE English"
+---
+{% raw %}About me: Gowthami working as a school assistant(English). I have 9 years of teaching experience. Feeling glad for starting this channel. I will be there with you till you get perfection in English. If you have any doubts you can ask in the comment section below. I am sure that you will get fun along with learning stay connected with TUBE English<br /><br /> Gears I use to record my Videos:<br />Camera: <a rel="nofollow" target="blank" href="https://amzn.to/2KRQ3FQ">https://amzn.to/2KRQ3FQ</a><br />Light: 1. <a rel="nofollow" target="blank" href="https://amzn.to/34F8DIF">https://amzn.to/34F8DIF</a><br />        2. <a rel="nofollow" target="blank" href="https://amzn.to/2WGet87">https://amzn.to/2WGet87</a><br />Ringlight : <a rel="nofollow" target="blank" href="https://amzn.to/3mMTXxb">https://amzn.to/3mMTXxb</a><br />Mic: <a rel="nofollow" target="blank" href="https://amzn.to/2WITKR7">https://amzn.to/2WITKR7</a><br />Tripod: <a rel="nofollow" target="blank" href="https://amzn.to/2WEb5uf">https://amzn.to/2WEb5uf</a><br />Voiceover mic : <a rel="nofollow" target="blank" href="https://amzn.to/2WMYXXT">https://amzn.to/2WMYXXT</a><br />Webcam for Live : <a rel="nofollow" target="blank" href="https://amzn.to/2WGfCMX">https://amzn.to/2WGfCMX</a><br /><br />Social Media handles : <br />Twitter : <a rel="nofollow" target="blank" href="https://twitter.com/tube_english">https://twitter.com/tube_english</a><br />Instagram : <a rel="nofollow" target="blank" href="https://www.instagram.com/tubeenglish.official/">https://www.instagram.com/tubeenglish.official/</a><br />Tumblr : <a rel="nofollow" target="blank" href="https://www.tumblr.com/blog/tubeenglish">https://www.tumblr.com/blog/tubeenglish</a><br />Pinterest : <a rel="nofollow" target="blank" href="https://in.pinterest.com/tubeenglish/">https://in.pinterest.com/tubeenglish/</a><br />Facebook : <a rel="nofollow" target="blank" href="https://www.facebook.com/tubeenglishgouthami/">https://www.facebook.com/tubeenglishgouthami/</a><br /><br />Tags: tube English<br />spoken English<br />spoken English in Telugu<br />English through Telugu<br />free-spoken English course<br />tube<br />English<br /><br />English in Telugu<br />how to learn English<br />learn English<br />tube English learning<br />spoken English LinkedIn : <a rel="nofollow" target="blank" href="https://www.linkedin.com/in/tube-english-535b16213/">https://www.linkedin.com/in/tube-english-535b16213/</a> Telegram (Notes will be posted here) : <a rel="nofollow" target="blank" href="https://t.me/TUBEEnglish">https://t.me/TUBEEnglish</a>{% endraw %}
