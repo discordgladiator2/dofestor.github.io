@@ -1,0 +1,15 @@
+---
+title: "Purè con le patatine fritte in busta di TikTok | Cucina Buttata"
+image: "https:\/\/i.ytimg.com\/vi\/ZP4duU71Bys\/hqdefault.jpg"
+vid_id: "ZP4duU71Bys"
+categories: "Entertainment"
+tags: ["willwoosh","guglielmo scilla","intrattenimento"]
+date: "2021-06-26T01:48:23+03:00"
+vid_date: "2021-04-25T10:05:41Z"
+duration: "PT8M33S"
+viewcount: "210987"
+likeCount: "22927"
+dislikeCount: "146"
+channel: "willwoosh"
+---
+{% raw %}Proviamo il purè fatto con le patatine fritte in busta di TikTok per capire quanto faccia schifo da uno a carbonara francese.<br />__<br />Per collaborazioni: info@willwoosh.it <br /><br />+ CANALE YT: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/willwoosh/featured">https://www.youtube.com/user/willwoosh/featured</a><br />+ PROFILO IG: <a rel="nofollow" target="blank" href="https://www.instagram.com/guglielmoscilla/">https://www.instagram.com/guglielmoscilla/</a><br />+ CANALE TWITCH: <a rel="nofollow" target="blank" href="https://www.twitch.tv/willwoosh">https://www.twitch.tv/willwoosh</a><br />+ PAGINA FB: <a rel="nofollow" target="blank" href="https://www.facebook.com/willwoosh/">https://www.facebook.com/willwoosh/</a><br />+ TWITTER: <a rel="nofollow" target="blank" href="https://twitter.com/guglielmoscilla">https://twitter.com/guglielmoscilla</a><br /><br />PLAYLIST VITA BUTTATA: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=IudCUJR7WeU&amp;list=PLKd-OY-q9qIeeN3cgFBxvwzaWUrziwwTt">https://www.youtube.com/watch?v=IudCUJR7WeU&amp;list=PLKd-OY-q9qIeeN3cgFBxvwzaWUrziwwTt</a><br /><br />PLAYLIST CUCINA BUTTATA: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=NuStINmHRf8&amp;list=PLKd-OY-q9qIdYKA9jTjbFsJiDy0G_4oEy">https://www.youtube.com/watch?v=NuStINmHRf8&amp;list=PLKd-OY-q9qIdYKA9jTjbFsJiDy0G_4oEy</a><br /><br />PLAYLIST PARODIE (imbarazzante): <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=EvNqzBHCdwc&amp;list=PLKd-OY-q9qIfEvx66Wy2POlVI8bK9MZv8&amp;index=1">https://www.youtube.com/watch?v=EvNqzBHCdwc&amp;list=PLKd-OY-q9qIfEvx66Wy2POlVI8bK9MZv8&amp;index=1</a><br /><br />PLAYLIST WEEKWOOSH: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=YkdZl7ubwSs&amp;list=PLKd-OY-q9qIdvfEGpqWCsvhKMITBqFXiT">https://www.youtube.com/watch?v=YkdZl7ubwSs&amp;list=PLKd-OY-q9qIdvfEGpqWCsvhKMITBqFXiT</a><br /><br />PLAYLIST GUGLIELMO TELL: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=3kA46kE9UX8&amp;list=PLKd-OY-q9qIeKIelWY_HwUwRhV6acfOuR">https://www.youtube.com/watch?v=3kA46kE9UX8&amp;list=PLKd-OY-q9qIeKIelWY_HwUwRhV6acfOuR</a><br /><br />PLAY LIST VLOGMAS 2018: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=2WwbM2EItsM&amp;list=PLKd-OY-q9qIfd0LwFHy25yJ53Xdwfrczm">https://www.youtube.com/watch?v=2WwbM2EItsM&amp;list=PLKd-OY-q9qIfd0LwFHy25yJ53Xdwfrczm</a><br /><br />PLAYLIST VLOGMAS 2019: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=qRyWpAH0l0I&amp;list=PLKd-OY-q9qIeonsSpVd4kDAnZVnNAp1z9">https://www.youtube.com/watch?v=qRyWpAH0l0I&amp;list=PLKd-OY-q9qIeonsSpVd4kDAnZVnNAp1z9</a>{% endraw %}
