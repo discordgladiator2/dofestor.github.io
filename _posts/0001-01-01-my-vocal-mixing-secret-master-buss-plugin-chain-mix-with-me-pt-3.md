@@ -1,0 +1,15 @@
+---
+title: "My Vocal Mixing Secret & Master Buss Plugin Chain | Mix With Me! Pt.  3"
+image: "https:\/\/i.ytimg.com\/vi\/nnpsreFpe4A\/hqdefault.jpg"
+vid_id: "nnpsreFpe4A"
+categories: "People-Blogs"
+tags: ["master bus","mix bus processing","master bus processing"]
+date: "2021-06-25T21:50:56+03:00"
+vid_date: "2021-06-25T12:30:16Z"
+duration: "PT15M34S"
+viewcount: "576"
+likeCount: "64"
+dislikeCount: "0"
+channel: "Frightbox Recording"
+---
+{% raw %}►►FRIGHTBOX MIX CRYPT: <a rel="nofollow" target="blank" href="http://frightboxrecordingacademy.com/mixcrypt/">http://frightboxrecordingacademy.com/mixcrypt/</a><br /><br />►► Download your FREE set of multitracks: <a rel="nofollow" target="blank" href="http://frightboxrecordingacademy.com/multitracks/">http://frightboxrecordingacademy.com/multitracks/</a><br /><br /><br />My master buss chain &amp; vocal mix might not be what you'd expect.<br /><br /><br />Vocals are one of the most (if not, the most) important components of a mix. <br /><br />We must keep in mind that the average listener will be focusing on vocals more than anything else while listening to a song. <br /><br />It's also extremely important to get your plugin chain right on your master buss so that you're mix can compete with other commercial releases level-wise. <br /><br />Achieving a loud mix is NOT as simple as slapping a limiter on your output and slamming your mix through it..<br /><br />At least not if you want your mix to sound good.<br /><br />In part 3 of this week's 3-part video series, I break down my exact vocal mix and master buss plugins chain for the song.  <br /><br />I also reveal my secret for adding extra analog character to vocal tracks using a plugin that you probably wouldn't have guessed. <br /><br />You can download the exact same files I'm using in this video series by clicking the link above. <br /><br />►► Sonimus plugins: <a rel="nofollow" target="blank" href="https://sonimus.com/?ref=frightboxrecording">https://sonimus.com/?ref=frightboxrecording</a><br />►► Use this 10% off discount code for any Sonimus plugin!: FRIGHTBOX10<br /><br />Check out the original 2010 mix here: <a rel="nofollow" target="blank" href="https://youtu.be/RGwS3riPayQ">https://youtu.be/RGwS3riPayQ</a><br /><br />►► Frightbox MERCH: <a rel="nofollow" target="blank" href="https://frightbox-recording.creator-spring.com/">https://frightbox-recording.creator-spring.com/</a><br /><br />► Website - <a rel="nofollow" target="blank" href="https://frightboxrecordingacademy.com/">https://frightboxrecordingacademy.com/</a><br /><br />► Facebook - <a rel="nofollow" target="blank" href="https://www.facebook.com/frightboxrecording">https://www.facebook.com/frightboxrecording</a><br /><br />► Instagram - <a rel="nofollow" target="blank" href="https://www.instagram.com/frightboxrecording">https://www.instagram.com/frightboxrecording</a><br /><br />All music in video mixed and mastered @ <a rel="nofollow" target="blank" href="http://www.frightboxrecording.com">http://www.frightboxrecording.com</a>{% endraw %}
