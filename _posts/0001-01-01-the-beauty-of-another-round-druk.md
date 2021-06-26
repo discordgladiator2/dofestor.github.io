@@ -1,0 +1,15 @@
+---
+title: "The Beauty Of Another Round (Druk)"
+image: "https:\/\/i.ytimg.com\/vi\/2yGrWd_hFrE\/hqdefault.jpg"
+vid_id: "2yGrWd_hFrE"
+categories: "Film-Animation"
+tags: ["The beauty of","cinema","scene"]
+date: "2021-06-26T19:13:46+03:00"
+vid_date: "2021-05-19T07:37:54Z"
+duration: "PT2M52S"
+viewcount: "56526"
+likeCount: "3952"
+dislikeCount: "16"
+channel: "The Beauty Of"
+---
+{% raw %}Directed by Thomas Vinterberg<br /><br />Director of photography : Sturla Brandth Grøvlen <br /><br />Song : What a life<br /><br />As you probably know, I can't monetize my videos because the content isn't mine.<br />You want to fund me ? : <a rel="nofollow" target="blank" href="https://www.patreon.com/TheBeautyOf">https://www.patreon.com/TheBeautyOf</a><br />Through this page, you have the possibility to support me and my work. <br />It's also possible to make a one time donation on paypal : <a rel="nofollow" target="blank" href="https://www.paypal.me/marcdelescure">https://www.paypal.me/marcdelescure</a><br /><br />Thank you to Mitch Patterson, Rogelio Valenzuela, Mishek Kandangwa, GG, cpt.oneeye, Lara Halpin, Victor Bonnefoy, Antoine Tholly, Marcin, Samipya Bagde, Christopher Prud'homme, Andy Moore, Tom Pickett, Jakub Gieryn, Klára Skřenková, Joshua Watson, Erik Sanchez, Austin Doughty, Red Quisumbing, Nikita Maximov, Yataaah, Hugo Nunes, Mira Hobbs, Andrew J. Caines, Giuliano Jahn, Ken O'Hare, Joe Harder, Augy, Niall Santo, Milea Silalahi, Thomas Piquet, Isaiah, Mora Mitchell, Max Calder, Jeff Chang, Dylan, Thomas Eyer, Iwo Plotka, Victor, Albert Lew, Oriol Olivera, Corentin Wunsche, Mark Gatten, Andy Nguyen, Sonal Sharma, Elie Dubois, Markus Schumacher, Smiegel Lachshmi, Baalooos, Junette Ginger, Addison Seth Heathcock, Adrian Hernandez, f1rst_musician_bootmaker, Jesse Slot, Ioan Joita, John Hunter, Breemersch, Jorge A Dominguez P, PD7748, Stefano Savvidis, Damien Nijssen, Lanny Lang, Gordon John, Quinn Hansen, Lucas, Mathias Rentsch, Swann Jaunasse, Emme Fugete, Jan Vorel, Levi Peterson, Floris de Wilde, Nazar Mahier-Šman, iLLaXx, Gibson Karner, Max Desloges, Agam Brahma, Antoine de Beauvais, Samigigi<br /><br />I DO NOT OWN THE RIGHTS OF THE MOVIE OR MUSIC. ALL RIGHTS BELONG TO THEIR RESPECTFUL OWNERS. This video is not intended to violate any Condition of Use. Copyright Disclaimer Under Section 107 of Copyright Act 1976, allowance is made for &quot;fair use&quot; for purposes such as criticism, comment, news reporting, teaching, scholarship, and research. Fair use is a use permitted by copyright statute that might otherwise be infringing. Non-profit, educational or personal use tips the balance in favour of fair use.<br /><br />Facebook : <a rel="nofollow" target="blank" href="https://www.facebook.com/thebeautyofyoutube/">https://www.facebook.com/thebeautyofyoutube/</a><br /><br />Twitter : <a rel="nofollow" target="blank" href="https://twitter.com/TheBeautyOf1">https://twitter.com/TheBeautyOf1</a><br /><br />Instagram : <a rel="nofollow" target="blank" href="https://www.instagram.com/thebeautyofyoutube/">https://www.instagram.com/thebeautyofyoutube/</a>{% endraw %}
