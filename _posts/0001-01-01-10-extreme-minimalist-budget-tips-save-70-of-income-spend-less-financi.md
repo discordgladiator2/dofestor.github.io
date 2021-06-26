@@ -1,0 +1,15 @@
+---
+title: "10 EXTREME MINIMALIST BUDGET TIPS (SAVE 70% OF INCOME) \/\/ Spend Less 💸 FINANCIAL MINIMALIST FAMILY"
+image: "https:\/\/i.ytimg.com\/vi\/f2u0Tn8esVs\/hqdefault.jpg"
+vid_id: "f2u0Tn8esVs"
+categories: "Howto-Style"
+tags: ["minimalist budget","minimalist budgeting","how to save money like a minimalist"]
+date: "2021-06-26T10:29:05+03:00"
+vid_date: "2021-01-29T14:00:08Z"
+duration: "PT15M30S"
+viewcount: "303974"
+likeCount: "14981"
+dislikeCount: "196"
+channel: "Marissa Zen - Family Minimalism"
+---
+{% raw %}Here are my top extreme minimalist budget tips to save more money with your minimalist lifestyle. Minimalism has helped us pay off debt and afford our dream life while still practicing balanced simple living. Our financial minimalist family still has SO MUCH FUN every day even though we spend less money because we use a minimalist budgeting plan that helps us to focus our time and energy on the things we love. <br /><br />Minimalism and money go together like bread and butter, so here are 10 tips to save money like a minimalist RIGHT NOW!<br /><br />__________<br /><br />► 🌟 SUBSCRIBE TO JOIN OUR FAMILY: <br />   » <a rel="nofollow" target="blank" href="https://www.youtube.com/squirrelsofafeather?sub_confirmation=1">https://www.youtube.com/squirrelsofafeather?sub_confirmation=1</a><br /><br />► 🌱 FREE PRINTABLE BUDGET PLANNER [PDF]:<br />   » Grab here: <a rel="nofollow" target="blank" href="https://landing.mailerlite.com/webforms/landing/r9e9t6">https://landing.mailerlite.com/webforms/landing/r9e9t6</a><br /><br />► 💻 EASY SIDE HUSTLE IDEAS:<br />   » 10 Hottest Side Hustles of 2021: <a rel="nofollow" target="blank" href="https://www.squirrelsofafeather.com/side-hustle-ideas/">https://www.squirrelsofafeather.com/side-hustle-ideas/</a><br /><br />__________<br /><br />🎃 PUMPKIN SPINACH MUFFINS:<br />   » <a rel="nofollow" target="blank" href="https://www.squirrelsofafeather.com/healthy-butternut-squash-muffins-with-kale-swirl/">https://www.squirrelsofafeather.com/healthy-butternut-squash-muffins-with-kale-swirl/</a><br />   » I used this recipe below and subbed pumpkin for butternut squash and spinach for kale. Just add the spinach to the food processor WITH the pumpkin for pure green muffins. :)<br /><br />__________<br /><br /><br />ABOUT SQUIRRELS OF A FEATHER<br />I was a sentimental hoarder who couldn’t let go; my husband grew up poor in rural China. Fast forward and now we are a happy minimalist family living our dream life in Europe. <br /><br />Minimalism changed my life - now I want to help YOU unclutter your happiness!<br /><br />OUR STORY: <a rel="nofollow" target="blank" href="https://www.squirrelsofafeather.com/about-squirrels-of-a-feather/">https://www.squirrelsofafeather.com/about-squirrels-of-a-feather/</a><br /><br />__________<br /><br />NOTE: This description may contain affiliate links; these links allow you to find the items mentioned in this video and support the channel at no additional cost to yourself. While this channel may earn a small amount when the viewer uses the links, the viewer is in NO WAY obligated to use these links.{% endraw %}
