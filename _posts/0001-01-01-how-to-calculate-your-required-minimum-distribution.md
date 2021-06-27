@@ -1,0 +1,15 @@
+---
+title: "How to Calculate Your Required Minimum Distribution"
+image: "https:\/\/i.ytimg.com\/vi\/j9wslKBn8Cw\/hqdefault.jpg"
+vid_id: "j9wslKBn8Cw"
+categories: "Education"
+tags: ["pure financial","pure financial advisors","your money your wealth"]
+date: "2021-06-27T13:08:42+03:00"
+vid_date: "2015-05-09T18:30:01Z"
+duration: "PT1M31S"
+viewcount: "3320"
+likeCount: ""
+dislikeCount: ""
+channel: "Your Money, Your Wealth"
+---
+{% raw %}Joe and Big Al show you how to calculate your required minimum distribution.  <br /><br />0:17 “You want to look at your balance in your IRA at year end, and then you divide it by your life expectancy factor, which is from an IRS table, and that factor at 70 ½ is 27 so you take your balance divided by 27, and another way to say that is to take your balance and multiply it by about 3.6”<br /><br />0:38 “Second year, your life expectancy shortens a little bit, so that factor is lower, so you have to take a higher percentage out.  A lot of people don’t realize that as you age, you need to take more and more out of your IRA and therefore you have more and more that’s taxable”<br /><br />0:57 “If I’m married to someone that’s ten years younger, then your required distribution goes on a different table, so it gets a little complex once you start taking the distributions out”<br /><br />Aired 5/9/15<br /><br />Season 2 Episode 19<br /><br />If you live in southern California and would like to schedule a free assessment with one of our CFP® professionals, click here: <a rel="nofollow" target="blank" href="https://purefinancial.com/lp/free-assessment/">https://purefinancial.com/lp/free-assessment/</a><br /><br />Make sure to subscribe to our channel for more helpful tips and stay tuned for the next episode of “Your Money, Your Wealth.” <br /><br />Channels &amp; show times: <a rel="nofollow" target="blank" href="http://yourmoneyyourwealth.com">http://yourmoneyyourwealth.com</a><br /><a rel="nofollow" target="blank" href="http://purefinancial.com">http://purefinancial.com</a><br /><br /><br />IMPORTANT DISCLOSURES:<br />• Investment Advisory and Financial Planning Services are offered through Pure Financial Advisors, Inc. A Registered Investment Advisor.<br />• Pure Financial Advisors Inc. does not offer tax or legal advice. Consult with a tax advisor or attorney regarding specific situations.<br />• Opinions expressed are subject to change without notice and are not intended as investment advice or to predict future performance.<br />• Investing involves risk including the potential loss of principal. No investment strategy can guarantee a profit or protect against loss in periods of declining values.<br />• All information is believed to be from reliable sources; however, we make no representation as to its completeness or accuracy.<br />• Intended for educational purposes only and are not intended as individualized advice or a guarantee that you will achieve a desired result. Before implementing any strategies discussed you should consult your tax and financial advisors. #YourMoneyYourWealth #YMYW #YourMoneyYourWealthTV{% endraw %}
