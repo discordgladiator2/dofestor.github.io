@@ -1,0 +1,15 @@
+---
+title: "Henrique e Juliano - COMPLETA A FRASE part. Marília Mendonça -DVD Menos é Mais - IG henriqueejuliano"
+image: "https:\/\/i.ytimg.com\/vi\/DUii0oyELNw\/hqdefault.jpg"
+vid_id: "DUii0oyELNw"
+categories: "Music"
+tags: ["Cuida bem dela","Ate você voltar","quem pegou pegou"]
+date: "2021-06-28T15:15:18+03:00"
+vid_date: "2019-02-20T13:58:42Z"
+duration: "PT3M11S"
+viewcount: "68526485"
+likeCount: "335680"
+dislikeCount: "8191"
+channel: "Henrique e Juliano"
+---
+{% raw %}Deezer 👉🏻 <a rel="nofollow" target="blank" href="https://www.deezer.com/es/album/74532742">https://www.deezer.com/es/album/74532742</a><br />Spotify 👉🏻 <a rel="nofollow" target="blank" href="https://open.spotify.com/album/0oMdQJsCjyasZI6T8ojBGB">https://open.spotify.com/album/0oMdQJsCjyasZI6T8ojBGB</a><br />Youtube Music 👉🏻 <a rel="nofollow" target="blank" href="https://music.youtube.com/playlist?list=OLAK5uy_lt9eLHgp00UsUTxNF2UT1_6uI31n7HZBo">https://music.youtube.com/playlist?list=OLAK5uy_lt9eLHgp00UsUTxNF2UT1_6uI31n7HZBo</a><br />TIDAL 👉🏻 <a rel="nofollow" target="blank" href="https://listen.tidal.com/album/95989784">https://listen.tidal.com/album/95989784</a><br />Sua Musica 👉🏻 <a rel="nofollow" target="blank" href="https://www.suamusica.com.br/cidadevizinha">https://www.suamusica.com.br/cidadevizinha</a><br />Apple Music 👉🏻 <a rel="nofollow" target="blank" href="https://itunes.apple.com/mx/album/menos-%C3%A9-mais-ao-vivo/1437830301">https://itunes.apple.com/mx/album/menos-%C3%A9-mais-ao-vivo/1437830301</a><br />Claro Música 👉🏻 <a rel="nofollow" target="blank" href="https://www.claromusica.com/album/5873192">https://www.claromusica.com/album/5873192</a><br />Palco MP3 👉🏻 <a rel="nofollow" target="blank" href="https://www.palcomp3.com/henriqueejulianooficial/">https://www.palcomp3.com/henriqueejulianooficial/</a><br /><br />Henrique e Juliano - COMPLETA A FRASE - DVD Menos é Mais<br /><br />Direção de Vídeo Fernando Trevisan<br />Direção de Áudio Eduardo Pepato<br /><br />COMPLETA A FRASE ( Letra )<br />Compositores: Flavinho Tinto, Nando Marx, Douglas Mello<br /><br />Eu não vou te pedir pra voltar<br />Mas vê se não esquece<br />Que eu também não vou conseguir<br />Nem se eu quisesse<br />Deixa estar como está, ou não deixa<br />Só responde uma coisa<br />Talvez mais que uma<br />Com toda sinceridade<br />Me dê dois minutos do seu tempo<br />Depois disso eu vou embora<br />Só completa a frase<br />Quando você me vê com outra pessoa<br />No meio da rua<br />Nessa hora você vai disfarçar<br />Vai chegar em casa e perceber que não estava imune<br />Vai desabar<br />O nome disso é<br />Completa aí<br />Quando a gente tentar com outras pessoas<br />Varias tentativas, e ver que nada é de verdade<br />Quando alguém te chamar pra sair<br />E você já não tiver com vontade<br />Completa ai<br />O nome disso é<br />Quando soube as respostas, sorriu e não falou<br />Completo pra você, o nome disso é amor<br />Responde uma coisa<br />Talvez mais que uma<br />Com toda sinceridade<br />Me…<br /><br />#henriqueejuliano #CompletaAFrase #dvdmenosémais{% endraw %}
