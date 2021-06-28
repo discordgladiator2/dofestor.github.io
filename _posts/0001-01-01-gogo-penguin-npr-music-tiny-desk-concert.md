@@ -1,0 +1,15 @@
+---
+title: "GoGo Penguin: NPR Music Tiny Desk Concert"
+image: "https:\/\/i.ytimg.com\/vi\/47XlUL6sRow\/hqdefault.jpg"
+vid_id: "47XlUL6sRow"
+categories: "Music"
+tags: ["NPR","NPR Music","National Public Radio"]
+date: "2021-06-28T05:20:25+03:00"
+vid_date: "2018-09-21T09:00:01Z"
+duration: "PT18M5S"
+viewcount: "1388384"
+likeCount: "27685"
+dislikeCount: "255"
+channel: "NPR Music"
+---
+{% raw %}Sept. 14, 2018 | Colin Marshall -- During his setup, GoGo Penguin's pianist Chris Illingworth asked if he could remove our piano cover to &quot;access the inside&quot; and, after a few rotations of a screwdriver, he soon handed me a long plank of black painted maple, which has no convenient place to rest in the NPR Music office. If you look closely at the piano innards during &quot;Bardo,&quot; you can see a strip of black tape stretched over a few strings, opposite Illingworth's bobbing head. It mutes a group of strings, turning them into percussive jabs and dividing the instrument into more explicit rhythmic and melodic sections. What you can't see: GoGo Penguin's audio engineer a few feet to the left of frame, dialing-in reverb effects on the piano, which we heard in the room. These two elements, in tandem with bassist Nick Blacka's precise canvasing and drummer Rob Turner's charged and delicate pulse, have heavily contributed to the sonic identity of this trio - a signal to jazz jukebox listeners that, &quot;Ah yes, that's a GoGo Penguin tune.&quot;<br /><br />GoGo Penguin models closely the leaderless jazz power trio set in motion by forbearers in The Bad Plus, but you can also hear the drippings of electronica groups like Bonobo, and drum-and-bass foundations akin to Roni Size with a bit more acoustic rattle (Turner even fashions his own prepared drum accessories from rope, duct tape, and metal rings, which you can see resting atop his ride cymbal and snare. He tells me he usually has more, but he hasn't made new ones in a while).<br /><br />But dissecting this music belabors what's certain: this trio has become a reference point of their own for new school instrumentalists, a coveted achievement for any jazz group, though their appeal stretches far outside the jazz ecosystem. In fact, in 2018 alone, the band played some of the world's most notable pop festivals like Bonnaroo and Outside Lands and top-tier international jazz festivals: Montreal and North Sea. This trio found a way to wedge themselves in the middle of the Venn diagram that overlaps musicians and music heads. Among my colleagues at NPR, I witnessed expressions ranging from studious squints to closed-eye meditation, those in the room experiencing GoGo Penguin's tunes like they would a collage: the fine details as valuable as the larger shape.<br /><br />Set List<br />&quot;Raven&quot;<br />&quot;Bardo&quot;<br />&quot;Window&quot;<br /><br />Credits<br />Producers: Colin Marshall Morgan Noelle Smith; Creative Director: Bob Boilen; Audio Engineer: Josh Rogosin; Videographers: Morgan Noelle Smith, Khun Minn Ohn, CJ Riculan; Production Assistant: Catherine Zhang; Photo: Samantha Clark{% endraw %}
