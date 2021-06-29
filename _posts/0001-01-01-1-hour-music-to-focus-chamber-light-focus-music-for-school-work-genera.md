@@ -1,0 +1,15 @@
+---
+title: "1 Hour Music to Focus: Chamber Light Focus Music for School, Work, General Focus"
+image: "https:\/\/i.ytimg.com\/vi\/5hRbUuuIkXs\/hqdefault.jpg"
+vid_id: "5hRbUuuIkXs"
+categories: "Howto-Style"
+tags: ["Headspace music","headspace focus","music to focus"]
+date: "2021-06-29T14:54:36+03:00"
+vid_date: "2021-05-12T13:00:01Z"
+duration: "PT1H1M6S"
+viewcount: "12069"
+likeCount: "288"
+dislikeCount: "3"
+channel: "Headspace"
+---
+{% raw %}Focus music for work or studying. Take on the to-do list with this inspiring, one-hour mix of vivid, ambient background music for concentration.<br />Watch more from Headspace: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=EVUeIlTLVQc&amp;t=1051s">https://www.youtube.com/watch?v=EVUeIlTLVQc&amp;t=1051s</a><br /><br />Subscribe to the Headspace channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UC3JhfsgFPLSLNEROQCdj-GQ?sub_confirmation=1">https://www.youtube.com/channel/UC3JhfsgFPLSLNEROQCdj-GQ?sub_confirmation=1</a><br /><br />#HeadspaceMusic #FocusMusic #HelpToFocus<br /><br />Enjoyed this relaxing video? Find more on the Headspace app!<br />App Store: <a rel="nofollow" target="blank" href="https://apps.apple.com/us/app/headspace-meditation-sleep/id493145008">https://apps.apple.com/us/app/headspace-meditation-sleep/id493145008</a><br />Google Play: <a rel="nofollow" target="blank" href="https://play.google.com/store/apps/details?id=com.getsomeheadspace.android&amp;hl=en_US">https://play.google.com/store/apps/details?id=com.getsomeheadspace.android&amp;hl=en_US</a> <br /><br />Check out Headspace online! <br /><br />Website: <a rel="nofollow" target="blank" href="https://www.headspace.com/">https://www.headspace.com/</a><br /><br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/headspace/">https://www.instagram.com/headspace/</a><br /><br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/Headspace">https://twitter.com/Headspace</a><br /><br />Facebook: <a rel="nofollow" target="blank" href="https://www.facebook.com/Headspace">https://www.facebook.com/Headspace</a> <br />.......................................................................................................................<br /><br />Learn to meditate in ten minutes a day with the Headspace app. Each day, it delivers a new guided meditation based on teachings that Andy Puddicombe, Co-founder of Headspace, learned during the ten years he spent studying meditation and mindfulness in monasteries across Asia.<br /><br />The first series,  Basics, is completely free and teaches the basics of meditation and mindfulness. After that, via subscription, Headspace offers hundreds of hours of original content tailored to the specific needs of each user. Themed meditation packs are supported by a host of content, including animations, articles and videos in the playful, quirky style that makes Headspace instantly recognizable. Along with daily meditations, Headspace also offers On-The-Go exercises for users short on time and SOS sessions to support subscribers in those meltdown moments.{% endraw %}
