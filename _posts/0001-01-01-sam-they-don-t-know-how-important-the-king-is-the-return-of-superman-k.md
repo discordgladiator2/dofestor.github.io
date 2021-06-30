@@ -1,0 +1,15 @@
+---
+title: "Sam, They don't know how important the king is! (The Return of Superman) | KBS WORLD TV 210627"
+image: "https:\/\/i.ytimg.com\/vi\/LJHIeZtDSOo\/hqdefault.jpg"
+vid_id: "LJHIeZtDSOo"
+categories: "Entertainment"
+tags: ["kbs","kbsworld","kbs world"]
+date: "2021-06-30T16:45:04+03:00"
+vid_date: "2021-06-29T04:59:26Z"
+duration: "PT9M26S"
+viewcount: "13263"
+likeCount: "473"
+dislikeCount: "5"
+channel: "KBS WORLD TV"
+---
+{% raw %}Click the &quot;Caption&quot; button to activate subtitle!<br /><br />▶The Return of Superman | 슈퍼맨이 돌아왔다 - Ep.387<br />- Every Sunday 19:10 (Seoul, UTC+9)<br /><br />Fathers may not be perfect.. but that's alright if they aren't perfect! There's nothing like a father's love to boost our spirits. The dads who used to spend all their time working have returned home on 'The Return of Superman'.<br /><br />▶ 10 Million Viewer Video Celebrating 10 Million Subscribers : <br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLMf7VY8La5RFS0XWTWFycvquksqgPeQ80">https://youtube.com/playlist?list=PLMf7VY8La5RFS0XWTWFycvquksqgPeQ80</a><br /><br />▶ 2021 Music Bank clips : <br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLMf7VY8La5RExE1YkVdBCHpaLsay2SnNa">https://youtube.com/playlist?list=PLMf7VY8La5RExE1YkVdBCHpaLsay2SnNa</a><br /><br />▶ 2 Days &amp; 1 Night Season 4 Highlights : <br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLMf7VY8La5RHuqYC9t6GcbapEGvrs1pQ3">https://youtube.com/playlist?list=PLMf7VY8La5RHuqYC9t6GcbapEGvrs1pQ3</a><br /><br />▶ 2020 Music Bank clips : <br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLMf7VY8La5RGym7CKoCfDFz_qb_WxU8Ry">https://youtube.com/playlist?list=PLMf7VY8La5RGym7CKoCfDFz_qb_WxU8Ry</a><br /><br />▶ 2020 KBS Song Festival : <br /><a rel="nofollow" target="blank" href="https://youtube.com/playlist?list=PLMf7VY8La5RH6K2FvOIaoSU__O0lb7a3t">https://youtube.com/playlist?list=PLMf7VY8La5RH6K2FvOIaoSU__O0lb7a3t</a><br /><br />▶Subscribe KBS WORLD TV Official Pages<br />Youtube Subscribe：<a rel="nofollow" target="blank" href="https://www.youtube.com/kbsworld">https://www.youtube.com/kbsworld</a><br />Homepage: <a rel="nofollow" target="blank" href="http://www.kbsworld.co.kr">http://www.kbsworld.co.kr</a> <br />Facebook: <a rel="nofollow" target="blank" href="http://www.facebook.com/kbsworld">http://www.facebook.com/kbsworld</a><br />Twitter: <a rel="nofollow" target="blank" href="http://twitter.com/kbsworldtv">http://twitter.com/kbsworldtv</a> <br />Instagram: <a rel="nofollow" target="blank" href="https://www.instagram.com/kbsworldtv/">https://www.instagram.com/kbsworldtv/</a><br />Line: <a rel="nofollow" target="blank" href="https://goo.gl/g5iRQV">https://goo.gl/g5iRQV</a><br />Android Download : <a rel="nofollow" target="blank" href="http://bit.ly/1NOZFKr">http://bit.ly/1NOZFKr</a><br />IOS Download : <a rel="nofollow" target="blank" href="http://apple.co/1NktctW">http://apple.co/1NktctW</a>{% endraw %}
