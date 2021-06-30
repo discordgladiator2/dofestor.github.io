@@ -1,0 +1,15 @@
+---
+title: "It Could Happen to You - Osaka Jazz Channel - Jazz @ the Parlor 2021.1.20"
+image: "https:\/\/i.ytimg.com\/vi\/RLjiaWx5M_s\/hqdefault.jpg"
+vid_id: "RLjiaWx5M_s"
+categories: "Music"
+tags: ["Osaka Jazz Channel","Takashi Kuge","Jazz Bar Buddies"]
+date: "2021-06-30T17:52:14+03:00"
+vid_date: "2021-01-30T23:30:04Z"
+duration: "PT7M13S"
+viewcount: "6931"
+likeCount: "106"
+dislikeCount: "1"
+channel: "Osaka Jazz Channel"
+---
+{% raw %}Tune : It Could Happen to You<br /><br />======Musicians===== <br />Alto saxophone : Misaki Kishimoto - 岸本 美咲<br /> (<a rel="nofollow" target="blank" href="https://misakialtosax.wixsite.com/misaki-altosax)">https://misakialtosax.wixsite.com/misaki-altosax)</a><br /> (<a rel="nofollow" target="blank" href="https://cloudcasting.jp/profile/MTc1NzAb2fb)">https://cloudcasting.jp/profile/MTc1NzAb2fb)</a><br />Piano : Saori Kobayashi - 小林 沙桜里<br /> (<a rel="nofollow" target="blank" href="https://saori-kobayashi.com)">https://saori-kobayashi.com)</a><br />Acoustic Bass : Yuu Miyano - 宮野 友巴<br /> (<a rel="nofollow" target="blank" href="https://twitter.com/yuumiyano​)">https://twitter.com/yuumiyano​)</a><br />Drums : Takashi Kuge - 久家 貴志<br /> (<a rel="nofollow" target="blank" href="http://www.kugedrums.wordpress.com​)">http://www.kugedrums.wordpress.com​)</a><br /><br />======Camera Crew======<br />Chief Camera &amp; Video Editing : Hironobu Takagi - 高木 弘仁<br />                                                      (<a rel="nofollow" target="blank" href="https://www.sizzle.photo/)">https://www.sizzle.photo/)</a><br />Assistant Camera Staff : Shoichi Watanabe - 渡邊 翔一<br />                                             (<a rel="nofollow" target="blank" href="http://www.show1photo.net​)">http://www.show1photo.net​)</a><br />                                             Shozo Nose - 野瀬 祥造<br />                                             (<a rel="nofollow" target="blank" href="https://www.facebook.com/nose.shozo​)">https://www.facebook.com/nose.shozo​)</a><br />                                             Yuki Ashida - 芦田 有機<br />                                             (<a rel="nofollow" target="blank" href="https://videoeasy.jp/​)">https://videoeasy.jp/​)</a><br />                                             Hiroshi Ito - 伊藤 洋<br />                                            <br /><br />Venue : <br />Brooklyn Parlor Osaka<br />(<a rel="nofollow" target="blank" href="https://brooklynparlor.co.jp/osaka/​)">https://brooklynparlor.co.jp/osaka/​)</a><br /><br />Producer &amp; Sound Editor : <br />Takashi Kuge - 久家 貴志<br />(<a rel="nofollow" target="blank" href="https://kugedrums.wordpress.com/apply/​)">https://kugedrums.wordpress.com/apply/​)</a><br /><br />Thumbnail menu page :<br />(<a rel="nofollow" target="blank" href="https://kugedrums.wordpress.com/jazzattheparlor/)">https://kugedrums.wordpress.com/jazzattheparlor/)</a><br /><br />Song written by : Jimmy Van Heusen<br /><br />(Released on 2021/1/31 ){% endraw %}
