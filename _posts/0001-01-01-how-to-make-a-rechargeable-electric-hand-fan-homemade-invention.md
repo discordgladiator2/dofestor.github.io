@@ -1,0 +1,15 @@
+---
+title: "How to make a rechargeable electric hand fan || HomeMade Invention"
+image: "https:\/\/i.ytimg.com\/vi\/EwteQ6E4IOg\/hqdefault.jpg"
+vid_id: "EwteQ6E4IOg"
+categories: "Science-Technology"
+tags: ["Creative Rohan","How to make a rechargeable electric hand fan","How to make a fan"]
+date: "2021-06-30T15:12:57+03:00"
+vid_date: "2019-05-19T15:02:39Z"
+duration: "PT3M34S"
+viewcount: "12384"
+likeCount: "170"
+dislikeCount: "20"
+channel: "Creative Rohan"
+---
+{% raw %}Hi friends in this video I will show you How to make a rechargeable electric hand fan......<br /><br /><br />So friends please watch this video till end. <br /><br />And friends if you like this video please hit the like button &amp; also subscribe our channel to get more videos...<br />------------------------------------------------------------------------------------------------------<br />Circuit diagram:-<a rel="nofollow" target="blank" href="https://m.facebook.com/story.php?story_fbid=2112886362258084&amp;id=1986497914896930">https://m.facebook.com/story.php?story_fbid=2112886362258084&amp;id=1986497914896930</a><br /><br />My previous videos ___👇<br /><br />2 Awesome Life Hacks with USB//Incredible Ideas<br /><a rel="nofollow" target="blank" href="https://youtu.be/RWgJu2QWDc8">https://youtu.be/RWgJu2QWDc8</a><br /><br />How to make a crazy robot🤖 car🚙//Very simple//Home made invention !!!<br /><a rel="nofollow" target="blank" href="https://youtu.be/OCvXFyNDOvY">https://youtu.be/OCvXFyNDOvY</a><br /><br />3 Awesome LED life hacks with 9v battery (Homemade gadgets)<br /><a rel="nofollow" target="blank" href="https://youtu.be/P78u7O7chT8">https://youtu.be/P78u7O7chT8</a><br /><br />How to make a rechargeable emergency fan at home || home invention||<br /><a rel="nofollow" target="blank" href="https://youtu.be/I7fz6kj3UGs">https://youtu.be/I7fz6kj3UGs</a><br /><br />How To Make A Rechargeable Emergency Light Using Plastic Box | HOMEMADE LED LIGHT<br /><a rel="nofollow" target="blank" href="https://youtu.be/_MC0Ss6dI3U">https://youtu.be/_MC0Ss6dI3U</a><br /><br />Our Facebook Page:-<a rel="nofollow" target="blank" href="https://www.facebook.com/Creative-Rohan-1986497914896930/">https://www.facebook.com/Creative-Rohan-1986497914896930/</a><br /><br />My soldering iron:-<a rel="nofollow" target="blank" href="https://amzn.to/2rdOSTR">https://amzn.to/2rdOSTR</a><br /><br />My hot glue gun:-<a rel="nofollow" target="blank" href="https://amzn.to/2KoSIlI">https://amzn.to/2KoSIlI</a><br /><br />My Camera+Phone :-<br /> Lenovo k6 power:-<a rel="nofollow" target="blank" href="https://amzn.to/2HGOicn">https://amzn.to/2HGOicn</a><br /><br />Background music:-Track: JPB - High [NCS Release]Music provided by NoCopyrightSounds. Watch:<a rel="nofollow" target="blank" href="https://youtu.be/Tv6WImqSuxA">https://youtu.be/Tv6WImqSuxA</a><br />Free Download / Stream:<a rel="nofollow" target="blank" href="http://ncs.io/jpbhigh">http://ncs.io/jpbhigh</a><br /><br />Do:))   LIKE ♡♡♡♡SHARE●●●●COMMENT■■■■<br />Thanks For Watching .......<br /><br />#creativerohan #rechargeablefan #homemadefan{% endraw %}
