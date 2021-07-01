@@ -1,0 +1,15 @@
+---
+title: "What RPGs Are Like For Someone Who Doesn't Play Games"
+image: "https:\/\/i.ytimg.com\/vi\/YBRTg74ZhLU\/hqdefault.jpg"
+vid_id: "YBRTg74ZhLU"
+categories: "Gaming"
+tags: ["Raz","Razbuten","Gaming For A Non-Gamer"]
+date: "2021-07-01T19:35:48+03:00"
+vid_date: "2021-06-30T18:01:18Z"
+duration: "PT23M1S"
+viewcount: "64828"
+likeCount: "10074"
+dislikeCount: "52"
+channel: "Razbuten"
+---
+{% raw %}Get 26% off CuriosityStream AND a free membership to Nebula by going to <a rel="nofollow" target="blank" href="http://curiositystream.com/razbuten">http://curiositystream.com/razbuten</a><br /><br /><br />Gaming For A Non-Gamer is back! And this time I try the impossible task of determining what an RPG even is and then having my wife play some. Here she experiences the joy of turn-based combat, random encounters and Sans Undertale. So, come join her as she continues her video game education and gets one step closer to becoming an experienced player.<br /><br />Twitch: <a rel="nofollow" target="blank" href="https://www.twitch.tv/razbuten">https://www.twitch.tv/razbuten</a><br />Second Channel: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCivETRAS-l1zO3RaR9f8PjA">https://www.youtube.com/channel/UCivETRAS-l1zO3RaR9f8PjA</a><br />Patreon: <a rel="nofollow" target="blank" href="https://www.patreon.com/razbuten">https://www.patreon.com/razbuten</a> <br />Twitter: <a rel="nofollow" target="blank" href="https://twitter.com/theRazbuten">https://twitter.com/theRazbuten</a><br />Discord: <a rel="nofollow" target="blank" href="https://discord.gg/rfawkHa">https://discord.gg/rfawkHa</a><br /><br />Additional Footage From World of Long Plays: <a rel="nofollow" target="blank" href="https://www.youtube.com/user/cubex55">https://www.youtube.com/user/cubex55</a><br />Legend of Dragoon Footage from xRavenXP: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=ypOt6xVv3Y8">https://www.youtube.com/watch?v=ypOt6xVv3Y8</a><br />Final Fantasy Footage From Valis77: <a rel="nofollow" target="blank" href="https://www.youtube.com/watch?v=fTdlzqhSdt8">https://www.youtube.com/watch?v=fTdlzqhSdt8</a><br /><br />Audio Edited by Trey Mitchell: <a rel="nofollow" target="blank" href="https://twitter.com/CrayTreyVids">https://twitter.com/CrayTreyVids</a><br /><br />Script Help From Eurothug4000: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCxddeIv7GdHNcVPZI9JvGXQ">https://www.youtube.com/channel/UCxddeIv7GdHNcVPZI9JvGXQ</a><br /><br />Additional Music and Sound Effects by Epidemic Sound: <a rel="nofollow" target="blank" href="http://epidemicsound.com/creator">http://epidemicsound.com/creator</a><br /><br />Special thanks to honorary bagbuten Elfinrez.<br /><br />00:00 Introduction<br />02:20 The Best Place To Start<br />05:06 Menu-Based Gameplay<br />09:16 Randomness and Uncertainty <br />15:29 Why Is It Called An RPG?<br />18:48 The End Again<br />20:12 Nebula and CuriosityStream<br /><br /><br /><br />#RPG #Undertale #FF7{% endraw %}
