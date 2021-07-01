@@ -1,0 +1,15 @@
+---
+title: "Surfside Miami Building Collapse NO BUILDING SETTLEMENT AND NO COLUMNS NOT SET ON ''BEDROCK\" +\/-"
+image: "https:\/\/i.ytimg.com\/vi\/z0roEhYsIio\/hqdefault.jpg"
+vid_id: "z0roEhYsIio"
+categories: "News-Politics"
+tags: ["CONSTRUCTION","ENGINEERING","PLUMBING"]
+date: "2021-07-02T02:48:47+03:00"
+vid_date: "2021-07-01T20:15:13Z"
+duration: "PT8M15S"
+viewcount: "2177"
+likeCount: "139"
+dislikeCount: "13"
+channel: "Construction Engineering & Failure Analysis"
+---
+{% raw %}Surfside Miami Building Collapse NO BUILDING SETTLEMENT AND NOT COLUMNS NOT SET ON ''BEDROCK&quot;   Thank you for smashing on the thumb's up button and please make a comment for the youtube algorithm, I appreciate that.<br />This video will also show the pool deck drainage and the ''thick added layer of concrete and pavers''.<br /><br />Please, support this channel,  google has restricted for monetization; please consider a recurring donation of as little as dollar a month, it will allow me to maintain this pace of sharing and helping <a rel="nofollow" target="blank" href="https://www.youtube.com/redirect?redir_token=DNv2IAOnVo5Ybkl1FWgAR6C5wc98MTU3MjA0NDQ2NkAxNTcxOTU4MDY2&amp;v=eVVbhESG65I&amp;q=https%3A%2F%2Fwww.paypal.com%2Fcgi-bin%2Fwebscr%3Fcmd%3D_s-xclick%26hosted_button_id%3DV9TGHDE92LQ8W%26source%3Durl&amp;event=video_description">https://www.youtube.com/redirect?redir_token=DNv2IAOnVo5Ybkl1FWgAR6C5wc98MTU3MjA0NDQ2NkAxNTcxOTU4MDY2&amp;v=eVVbhESG65I&amp;q=https%3A%2F%2Fwww.paypal.com%2Fcgi-bin%2Fwebscr%3Fcmd%3D_s-xclick%26hosted_button_id%3DV9TGHDE92LQ8W%26source%3Durl&amp;event=video_description</a><br />Please,  keep in my mind, as I make this videos, in the initial stages of data gathering I WILL make mistakes and get data WRONG as my wires ''cross and uncross'' in my brain. <br />Also, read my comments in the ''community page'' , it explains what this Youtube channel and forum will accomplish.<br />Very importantly, we need the workers from these troubled videos to comment and share their data so we can expose the truth and not some narrative from uninformed news stations, etc.<br /> You, the workers know the real deal! Share it, no company is paying you extra to protect them, you owe it to the people that came before and after you.  <br /> Please, keep in mind, that I love the human mind and how it works and processes... So, I have more of a ''deep thought&quot; on subjects that may include the ''intent'' (inside my evaluations in my videos). <br />Thank you for considering.<br /> <a rel="nofollow" target="blank" href="https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&amp;hosted_button_id=V9TGHDE92LQ8W&amp;source=url">https://www.paypal.com/cgi-bin/webscr?cmd=_s-xclick&amp;hosted_button_id=V9TGHDE92LQ8W&amp;source=url</a><br />Please be sure to comment in the donation comments if you want me to use the money for the elderly I run across that need repairs or for my personal use and if so even share how you think I should use the donation please... I have had donations where the kind giver has informed me to use it buy a bottle of wine and share with my significant other...{% endraw %}
