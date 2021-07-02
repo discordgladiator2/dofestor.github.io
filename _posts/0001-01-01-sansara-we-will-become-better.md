@@ -1,0 +1,15 @@
+---
+title: "Sansara – We will become better"
+image: "https:\/\/i.ytimg.com\/vi\/ENYwwbcn4V0\/hqdefault.jpg"
+vid_id: "ENYwwbcn4V0"
+categories: "Music"
+tags: ["ЛГБТ","любовь","КРАСОТА"]
+date: "2021-07-02T03:35:29+03:00"
+vid_date: "2021-06-29T08:00:11Z"
+duration: "PT6M25S"
+viewcount: "217316"
+likeCount: "2074"
+dislikeCount: "117"
+channel: "sansaraband"
+---
+{% raw %}Любовь - право каждого. Love is everyone’s right.<br />Российская ЛГБТ-сеть Телефон доверия - 8-800-555-73-74<br />Правовая и экстренная помощь на lgbtnet.org <br /><br /><br /><br />Directed by Andzej Gavriss @andzejgavriss<br />Story by Evgeny Primachenko @evgeny_primachenko<br />Written by Evgeny Primachenko, Andzej Gavriss<br />DP Andrey Nikolaev @kefirux<br />Production Designer Julija Fricsone-Gavriss @julijafricsone<br />Special thanks Roman Kovyazin, Alexandra Bakhmetyeva, Anton Kuznetsov, Yana Gannick, Vladimir Kravchenko, Dmitry Kolezev, Natalja Lea<br />Agency Voskhod @voskhodagency<br />Production Daddy’s film @daddys.film, Spot @spot.film<br />Creative Director Evgeny Primachenko<br />Line producer Alexandra Galius @alexandragalius<br />Executive producer Egor Solomatin @intelligence_service, Marizov Mikhail @marizov, Evgeny Primachenko<br />Associate Producer  Gijs Determeijer @gijsdetermeije, Ulia Petrova @blacklistmgmt<br />Editor David Gesslbauer @davidgesslbauer<br />Music Sansara @sansaraband feat Felix Bondarev @felixbondarev<br />Color grade Matt Osborne @matt_osborne_color<br />Color producer Blake Rice @blakerice<br />Choreographer Konstantin Koval @konstantin_koval_<br />Sound design Raja Sehgal, Markus Ffitch, Grand Central Recording Studios @grandcentralrecordingstudios<br />1st AD Maksim Kulish @ maxcoolish<br />Cast Nikita Orlov @orlov, Maksim Avdeev @maksimavdeev<br />Production manager Mikhail Goglov @gogadze, Dmitry Dimchevsky @ddimch<br />Location manager Aleksandr Kalkaev <br />Gaffer Nikolay Vakhrameev <br />Set decorator Maria Shymchuk @mariashymchuk, Slava Chulikov<br />Property master Maria Shymcuk<br />Property assistant Daniil Sviridov, Ilya Novik<br />Focus puller Viktor Saratov, Igor Gusev <br />Keygrip Sergey Irgizcev <br />Steadicam Danil Voytov @danil_voytov, Sergey Avdonin <br />Light crew Evgeny Gavrilo, Aleksey Egiazaryan, Sergey Skokov, Vadim Kodzhebash,   David Dzhayani, Roman Ivanovsky<br />Pult operator Vladimir Ovchinikov<br />On set editor Dmitry Buleyko <br />Camera rental Yourental @yourrental<br />Stylist Oksana Markina @markina.style<br />Stylist assistant Ekaterina Pavlova <br />PA  Mark Privalov, Sergey Poyarkov<br />Makeup Tatiana Polyakova <br />Stunt Oleg Chemadurov <br />Rig Rodion Klochkov, Aleksandr Kraevskiy <br />CG Artist Sergei Divid <br />3D animation Kirill Makukha @makukha_k, Maxim Makukha <br />Script supervisor Tim Eight @bytim8<br />BTS DoP Oleg Kolsky @olegkolsky, BTS Edit Daniil Galius @danyaa_g<br />Clean up Dmitry Talin @mpartiza<br />Title designer Andrey Olshevsky <br />Music: Sansara (production by Felix Bondarev)<br />Snegiri-music LLC, under exclusive license to Warner Music Ltd.{% endraw %}
