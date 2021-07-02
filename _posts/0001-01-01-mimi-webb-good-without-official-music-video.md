@@ -1,0 +1,15 @@
+---
+title: "Mimi Webb - Good Without (Official Music Video)"
+image: "https:\/\/i.ytimg.com\/vi\/WLoWBe9BRP4\/hqdefault.jpg"
+vid_id: "WLoWBe9BRP4"
+categories: "Music"
+tags: ["mimi webb","before i go","new music"]
+date: "2021-07-03T02:35:21+03:00"
+vid_date: "2021-04-23T14:00:14Z"
+duration: "PT3M7S"
+viewcount: "2628300"
+likeCount: "44006"
+dislikeCount: "2122"
+channel: "MimiWebbVEVO"
+---
+{% raw %}Mimi Webb - Good Without (Official Music Video)<br /><br />&quot;Good Without&quot; available at: <a rel="nofollow" target="blank" href="https://MimiWebb.lnk.to/GoodWithout">https://MimiWebb.lnk.to/GoodWithout</a><br /><br />Follow Mimi Webb:<br /><a rel="nofollow" target="blank" href="https://www.instagram.com/mimiiiwebb/">https://www.instagram.com/mimiiiwebb/</a><br /><a rel="nofollow" target="blank" href="https://twitter.com/mimiwebb">https://twitter.com/mimiwebb</a><br /><br />Lyrics:<br />You nearly gave me a heart attack<br />When you said you’re doing well<br />Is it obvious you’re all I had<br />And the last year’s been like hell<br />Guess I’m lonely thinking that you ain’t moved on<br />And I’m sorry if I’m coming off too strong<br /><br />Never thought I’d see the shape of pain<br />Standing in the front porch light<br />Is it obvious I’m not okay<br />Never meant to start a fight<br />Guess I’m just a moment living in your past<br />But I never thought you’d forget me so fast<br /><br />‘Cause I’m staring at all these photographs<br />I guess the good things ain’t meant to last<br />I gave you forever you gave a month<br />I’m never falling for anyone<br />And now I’m looking at the ceiling<br />Wondering just what you’re feeling now<br /><br />If that’s what love’s about<br />Then I’m so good without <br />(Oooh)<br />I’m so good without<br />(Oooh)<br />I’m so good without<br />(Oooh)<br />I’m so good without<br />(Oooh)<br /><br />I know you probably won’t relate<br />I heard you met somebody new<br />Don’t need no pity for pity’s sake<br />You just do what you gotta do<br />Is it normal for the pain to grow from fear<br />Am I weak for wishing you were here<br /><br />‘Cause I’m staring at all these photographs<br />I guess the good things ain’t meant to last<br />I gave you forever you gave a month<br />I’m never falling for anyone<br />And now I’m looking at the ceiling<br />Wondering just what you’re feeling now<br /><br />If that’s what love’s about<br />Then I’m so good without <br />(Oooh)<br /><br />I’m so good without<br />(Oooh)<br />I’m so good without<br />(Oooh)<br />I’m so good without<br />(Oooh)<br /><br />(I’m so good without)<br />‘Cause I’m staring at all these photographs<br />I guess the good things ain’t meant to last<br />I gave you forever you gave a month<br />I’m never falling for anyone<br />And now I’m looking at the ceiling<br />Wondering just what you’re feeling now<br /><br />If that’s what love’s about<br />Then I’m so good without<br /><br />(C) 2021 Epic Records, a division of Sony Music Entertainment<br /><br />#MimiWebb #GoodWithout{% endraw %}
