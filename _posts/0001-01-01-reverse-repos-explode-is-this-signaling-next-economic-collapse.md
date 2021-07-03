@@ -1,0 +1,15 @@
+---
+title: "Reverse Repos EXPLODE! Is This Signaling Next Economic Collapse?"
+image: "https:\/\/i.ytimg.com\/vi\/6j28XQI2gUA\/hqdefault.jpg"
+vid_id: "6j28XQI2gUA"
+categories: "Entertainment"
+tags: ["reverse repo","federal reserve","repo market"]
+date: "2021-07-03T07:20:48+03:00"
+vid_date: "2021-07-01T01:55:21Z"
+duration: "PT40M51S"
+viewcount: "46475"
+likeCount: "3508"
+dislikeCount: "33"
+channel: "George Gammon"
+---
+{% raw %}✅ LYN ALDEN and I discuss portfolio that will HELP YOU profit from DOLLAR losing reserve currency status, click this link to check it out!! 🔥 <a rel="nofollow" target="blank" href="https://www.georgegammon.com/portfolio">https://www.georgegammon.com/portfolio</a><br /><br />For more content that'll help you build wealth and thrive in a world of out of control central banks and big governments check out the videos below!   👇<br /><br />🔴 Subscribe for more free YouTube tips: <a rel="nofollow" target="blank" href="https://www.youtube.com/channel/UCpvyOqtEc86X8w8_Se0t4-w">https://www.youtube.com/channel/UCpvyOqtEc86X8w8_Se0t4-w</a><br /><br />Do you wanna see another video as incredible as this?<br /><br />Watch &quot;Mike Maloney (The Great Reset End Game, Inflation, Deflation, US Dollar, Bitcoin, Gold)&quot;: <br /><a rel="nofollow" target="blank" href="https://youtu.be/c7Ph2xStWNc">https://youtu.be/c7Ph2xStWNc</a><br /><br />Watch &quot;Peter Schiff (Election Impact On Markets, Media Attack, CBDC's, Cash Ban, Personal Freedom)&quot;: <br /><a rel="nofollow" target="blank" href="https://youtu.be/dkl9m4Kwkno">https://youtu.be/dkl9m4Kwkno</a><br /><br />Watch &quot;Lyn Alden/Jeff Snider (QE, Deflation, Inflation, Dollar, Eurodollar System, Future US Economy)&quot;: <br /><a rel="nofollow" target="blank" href="https://youtu.be/B4xcCO9v-Os">https://youtu.be/B4xcCO9v-Os</a><br /><br />Watch &quot;Luke Gromen (Dollar Hegemony Fading, Economic Collapse, MMT, And Social Unrest!!)&quot;: <br /><a rel="nofollow" target="blank" href="https://youtu.be/C5Ahqp-J1Cw">https://youtu.be/C5Ahqp-J1Cw</a><br /><br />Watch &quot;Brent Johnson (Is Dollar Milkshake Still Valid? Swap Lines, TGA, US Inflation, &amp; Much More!)&quot;: <br /><a rel="nofollow" target="blank" href="https://youtu.be/Qtdcw-NzMVE">https://youtu.be/Qtdcw-NzMVE</a><br /><br />Watch &quot;Jim Rogers Reveals Secrets That Could Make YOU RICH! (RCS Ep. 44!)&quot;: <br /><a rel="nofollow" target="blank" href="https://youtu.be/9U8Chc1EMyY">https://youtu.be/9U8Chc1EMyY</a><br /><br />Watch &quot;Danielle DiMartino Booth Reveals Incredible Insights For 2020! RCS Ep. 52&quot;: <br /><a rel="nofollow" target="blank" href="https://youtu.be/cOX69bB4vJY">https://youtu.be/cOX69bB4vJY</a><br /><br />Watch &quot;Robert Kiyosaki Reveals Insights YOU Need To Survive &amp; Thrive!! RCS Ep. 45!&quot;: <br /><a rel="nofollow" target="blank" href="https://youtu.be/BYKM11heXxg">https://youtu.be/BYKM11heXxg</a><br /><br />Stay tuned every week for new content!<br /><br />#FinancialCrisis #BankProblems #SystemBreakdown{% endraw %}
