@@ -1,0 +1,15 @@
+---
+title: "3 EASY WAYS TO FOLD A CLOTH NAPPY || TERRY TOWELING NAPPIES VS MODERN REUSABLE NAPPIES"
+image: "https:\/\/i.ytimg.com\/vi\/bcz5_0YV2Wc\/hqdefault.jpg"
+vid_id: "bcz5_0YV2Wc"
+categories: "Entertainment"
+tags: ["cloth nappies","how to fold","easy ways"]
+date: "2021-07-03T19:55:14+03:00"
+vid_date: "2021-03-30T20:00:03Z"
+duration: "PT10M22S"
+viewcount: "140"
+likeCount: "17"
+dislikeCount: "1"
+channel: "Casey Brown"
+---
+{% raw %}Hii guys so today I am showing you 3 easy ways to fold a cloth nappy the terry toweling nappies ;) i used these with my son and now my daughter ones you get the knack of them they truly are a breeze and think of all that money you will save, we just use this when we are at home on our daughter. <br /><br />when they get to doing the  more solid poo's it really is just a matter of discarding that into the toilet pretty simple really it is I promise. that's why I wanted to share this video with you all so that you to can start saving money to spend else where :) <br /><br />Cloth nappies can be purchased at baby shops, big w, kmart - <a rel="nofollow" target="blank" href="https://www.bigw.com.au/product/big-softies-terry-towelling-nappies-12-pack-white/p/7851582/?store=139&amp;gclid=Cj0KCQjw9YWDBhDyARIsADt6sGb26zgyNn036jlGq8BrklHOfgbb97HJXyhlCVouBymn-RoVBIWGAWQaAhnCEALw_wcB&amp;gclsrc=aw.ds">https://www.bigw.com.au/product/big-softies-terry-towelling-nappies-12-pack-white/p/7851582/?store=139&amp;gclid=Cj0KCQjw9YWDBhDyARIsADt6sGb26zgyNn036jlGq8BrklHOfgbb97HJXyhlCVouBymn-RoVBIWGAWQaAhnCEALw_wcB&amp;gclsrc=aw.ds</a><br />reusable, waterproof Pilcher's - <a rel="nofollow" target="blank" href="https://www.superpharmacy.com.au/products/pea-pods-pilchers-waterproof-nappy-covers-white?gclid=Cj0KCQjw9YWDBhDyARIsADt6sGbeiUAR-s4II8Ed1DGYh5pGfFaZj04GmloFPhvUEeTk8ZPfnjQRTBIaAjOQEALw_wcB">https://www.superpharmacy.com.au/products/pea-pods-pilchers-waterproof-nappy-covers-white?gclid=Cj0KCQjw9YWDBhDyARIsADt6sGbeiUAR-s4II8Ed1DGYh5pGfFaZj04GmloFPhvUEeTk8ZPfnjQRTBIaAjOQEALw_wcB</a><br />nappy fasteners 3 pack- <a rel="nofollow" target="blank" href="https://www.bigw.com.au/product/big-softies-nappy-fasteners-3-pack-assorted/p/467340/">https://www.bigw.com.au/product/big-softies-nappy-fasteners-3-pack-assorted/p/467340/</a><br />Bamboo liners - <a rel="nofollow" target="blank" href="https://www.superpharmacy.com.au/products/pea-pods-100-bamboo-liners-100-pack?gclid=Cj0KCQjw9YWDBhDyARIsADt6sGY9vNomFa2F_JCdHLkR_aXzJKnHwVb-22kvvIiOOPKwhlN1E3RMIVkaAlJAEALw_wcB">https://www.superpharmacy.com.au/products/pea-pods-100-bamboo-liners-100-pack?gclid=Cj0KCQjw9YWDBhDyARIsADt6sGY9vNomFa2F_JCdHLkR_aXzJKnHwVb-22kvvIiOOPKwhlN1E3RMIVkaAlJAEALw_wcB</a><br /><br />For BUSINESS enquires only please email asey_bear@hotmail.com<br />LETS BE FREINDS Connect with me on IG <a rel="nofollow" target="blank" href="http://www.instagram.com/asey_bear">http://www.instagram.com/asey_bear</a><br /><br />If your a new friend here please Hit that RED Subscribe button its completely FREE I promise ;){% endraw %}
